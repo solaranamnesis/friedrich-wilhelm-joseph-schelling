@@ -12,153 +12,8 @@
 
 ---
 
-Im Norden des aegäischen Meers erhebt sich die Sa-
-mothracische Insul, von Anfang wie es scheint Samos
-genannt, darauf zum Unterschiede von der jonischen und
-wegen der Nähe Thraciens die thracische (). Erd-
-kundige des Alterthums schon vermutheten große Natur-
-erschütterungen, die diese Gegenden noch zu Menschen-
-Zeiten betroffen. Es sei, daß durch bloße Anschwel-
-lung gehoben die Wasser des Euxinischen Meers erst
-die thracische Meerenge, dann den Hellespontus durch-
-brochen (), oder daß die Gewalt eines unterirdischen
-Feuers den Stand der Gewässer verändert (3): die
-ältesten samothracischen Erzählungen, die durch aufge-
-zeigte Denkmäler in Erinnerungen sich verwandelten,
-erhielten eine Kunde dieser Ereignisse und bis in jene
-Zeiten hinauf rückten sie die Verehrung und den Schutz
-der vaterländischen Götter (). Die Schrecken dieser
-Erinnerungen wurden erhöht durch die stets gegenwärti-
-gen Schauer einer großen und mächtigen Natur; von
+Im Norden des aegäischen Meers erhebt sich die Samothracische Insul, von Anfang wie es scheint Samos genannt, darauf zum Unterschiede von der jonischen und wegen der Nähe Thraciens die thracische.* Erdkundige des Altertums schon vermuteten große Naturerschütterungen, die diese Gegenden noch zu Menschen-Zeiten betroffen. Es sei, daß durch bloße Anschwellung gehoben die Wasser des Euxinischen Meers erst die thracische Meerenge, dann den Hellespontus durchbrochen,* oder daß die Gewalt eines unterirdischen Feuers den Stand der Gewässer verändert*: die ältesten samothracischen Erzählungen, die durch aufgezeigte Denkmäler in Erinnerungen sich verwandelten, erhielten eine Kunde dieser Ereignisse und bis in jene Zeiten hinauf rückten sie die Verehrung und den Schutz der vaterländischen Götter.* Die Schrecken dieser Erinnerungen wurden erhöht durch die stets gegenwärtigen Schauer einer großen und mächtigen Natur; von Wäldern bedeckt bildete das fast unzugängliche Eiland* nur Ein zusammenhangendes Gebirg* von dessen höchstem Gipfel während des Kampfs um Troja Poseidon die ganze Bergkette des Ida, des Priamus Stadt und der Danaer Schiffe überschaut.* Dort ward in unbestimmbarer Vorzeit ein geheimnißvoller Götterdienst gestiftet und wenn die vielreiche jonische Samos des göttlich geachteten Mannes sich rühmt, der zuerst einen höhere Menschlichkeit beabsichtenden Bund ersonnen, so ist die unansehnliche Samos Traciens herrlicher in der Geschichte der Menschheit durch den Dienst der Kabiren, dem ältesten des ganzen Griechenlandes, der mit dem ersten Licht höheren und besseren Wissens in diesen Gegenden aufging, und der nicht eher als zugleich mit dem alten Glauben selbst untergegangen scheint. Aus den Wäldern Samothraciens erhielt Griechenland mit der geheimeren Göttergeschichte zuerst den Glauben an ein zukünftiges Leben. Besser und für das Leben wie für den Tod fröhlicher wurden nach allgemeiner Überzeugung die dort Eingeweihten.* Eine Zuflucht des Unglücks, ja des Verbrechens, so weit es durch Bekenntniß und Entsündigungen versöhnt werden mochte,* hielt, in Zeiten früherer und späterer Wildheit, samothracischer Gebrauch menschliches Gefühl aufrecht. Kein Wunder, daß der Name der heiligen Insul* mit allem verwebt wurde, was die ältesten Geschichten Ehrwürdiges und Ruhmvolles aufbewahrten. Jasion und Dardamus, Orpheus und die Argonauten, Herkules auch und Ulysses, sollen teils den geheimen Dienst dort geordnet, teils die Weihen empfangen haben.* Den Pythagoras nennt eine weder unwahrscheinliche noch unwichtige Nachricht unter denen, die Weisheit dort suchten und fanden.* Bei den kabirischen Orgien sahen sich zuerst der macedonische Philipp und, noch Kind, die Mutter des großen Alexander Olympias, vielleicht nicht ohne Einfluß auf das künftige Schicksal ihres Sohns.* Selbst der Römer Herrschaft schonte der Freiheit und alten, wie es scheint, theokratischen Verfassung Samothraces*; dort suchte seines Reiches beraubt der letzte macedonische König eine Freistatt, aus der ihn nicht Gewalt der schon übermüthig herrschenden Römer, sondern die Heiligkeit des Orts selbst und der am eigenen Feldherrn verübte Mord austrieb.* Dort hätte, wenn nicht durch Nordstürme zurückgetrieben, kurz vor seinem Ende noch der edle Germanicus die Weihen empfangen.* Schriftsteller aus späterer Kaiserzeit erwähnen der samothracischen Heiligtümer im Genuß fortdaurender Verehrung und wenn auch nicht in noch bestehenden heiligen Gebräuchen der Altertumsforscher Züge aus dem Bild des alten samothracischen Dienstes zu erblicken meinte,* so würde man andern Spuren zufolge seine Fortdauer bis zum Ende des zweiten ja wohl bis in's dritte Jahrhundert der christlichen Zeitrechnung verfolgen können.* Wenn einst, da mehr als je wieder die öffentliche Aufmerksamkeit dem alten Griechenlande sich zuwendet, dieß fast vergessene Eiland gleich andern durchforscht würde, vielleicht daß nicht Schätze der Kunst wie jener unvergleichliche Fund von Aegina, aber Denkmäler des ältesten Glaubens, wichtiger noch als jener für die ganze Geschichte unseres Geschlechts, die Ausbeute solcher Nachsuchungen würden.* Einer wiederholten Betrachtung schien dieser geheime Götterdienst zwar in jeder Hinsicht, aber zumal aus folgenden Gründen, nach so vielen Untersuchungen nicht unwürdig. In Dunkel gehüllt ist noch die Bedeutung der einzelnen Gottheiten. Zwar ihre griechische Namen nennt mehr als Ein Schriftsteller. Wir wissen, daß Demeter, Dionysos, Hermes, auch Zeus als Kabiren verehrt wurden. Aber dieß sind für uns bloße Namen, die den Zweifel übrig lassen, ob die samothracischen Götter jenen bekannten Gottheiten etwa nur ähnlich und vergleichbar, oder mit ihnen wirklich und dem Grundbegriff nach Eins gewesen. Eben so ungewiß ist, wodurch sich diese Götter als Gegenstände der Geheimlehre von denselben Göttern im öffentlichen Dienst und allgemeinen Glauben unterschieden. Und doch vermag nur diese vereinte Kenntniß gründlichen Aufschluß zu geben über den Sinn der samothracischen Lehre, über das eigentliche, ihr zu Grunde liegende, System. Eine einzige durch besonderes Glück gerettete Nachricht* scheint mit den wahren vom ersten Ursprung sich herschreibenden Namen zugleich die urkundliche Zeit- und Geburtsfolge der samothracischen Götter erhalten zu haben. Billig schien daher, diese allen Untersuchungen zum Grunde zu legen. So lautet die Stelle des griechischen Auslegers, dem wir die Erhaltung jener Nachricht verdanken. In Samothrace empfängt man die Weihen der Kabiren. Mnasras sagt, es sein deren drei der Zahl nach, Axieros, Axiokersa, Axiokersos. Axieros sei die Demeter, Axiokersa die Persephone, Axiokersas aber der Hades. Einige fügen auch einen vierten hinzu, Kaswilos genannt, welcher, wie Dionysodoros erzählt, Hermes ist.* Auf die Folge dieser Persönlichkeiten, auf die einer jeden zukommende Zahl legt diese Stelle ein deutliches Gewicht; zugleich da sie die ursprünglichen Namen enthält, gibt sie Anlaß zur Vergleichung und zu Erforschung des jeder Gottheit zu Grunde liegenden Begriffs. Denn gewagt, ja fast frevelhaft scheint es, die Namen von dem alten Geschichtschreiber zu nehmen, die Bedeutung aber aus anderen Quellen, ganz unabhängig, erforschen zu wollen. Aller Grund ist anzunehmen, daß der die verborgenen Namen gewußt, auch der Bedeutung im Allgemeinen nicht unkundig gewesen. Daß sie nicht hellenischem, daß sie, nach Griechen-Weise zu reden, barbarischen Ursprungs sind, ist anerkannt*; welcher Zunge, welchem Volk sie ursprünglich angehört, dieß ist eine von jeder geschichtlichen Voraussetzung unabhängige, einer rein sprachlichen Entscheidung fähige Frage. Dem fleißigen sein ganzes Leben in ägyptischen Forschungen vergrabenen Zoëga war natürlich, den Wurzeln dieser Namen in den zweifelhaften Überbleibseln altägyptischer Sprache nachzuspüren; wenn er aber durch seine Forschungen statt bestimmter, entschiedene Persönlichkeiten bezeichnender, Bedeutungen die allgemeinsten und unbestimmtesten zu Tage fördert, wenn Axieros den Allmächtigem, Kaswilos den vollkommen Weisen bedeuten soll,* so wird durch solche Erklärungen die Ableitung allein schon verdächtig. Ob ans indischen Sprachschätzen ein mehr genügender Aufschluß möglich ist, sei dahingestellt; wir glaubten einen andern von früheren Forschern betretenen Weg wieder einschlagen zu müssen. Welches Volks auch immer die Namen und die dadurch bezeichneten Götter ursprünglich sein mögen, eines vorzugsweise die Meere beschiffenden Volkes waren sie gewiß. Denn das ist der allgemeinste Glaube, daß jene Götter zumal den Seefahrenden hülfreich und heilbringend sein.* Der Ursprung wie die Beständigkeit dieses Glaubens, läßt schwerlich eine andere Erklärung zu, als daß sie zuerst als die Götter eines zur See unternehmenden also begünstigt scheinenden Volkes bekannt wurden. Wie natürlich auch, daß fern herschiffende Fremdlinge in jenen noch jetzt nicht ungefährlichen Meeren, auf dessen Insuln außer den Geschäften des Handels Unwetter und Stürme sie oft lange Zeit zurückhalten mußten, die heimischen Götter wieder zu finden und zu verehren wünschten, daß also dieselben Schiffe, welche Räuchwerk, Purpur oder Elfenbein dahin führten, auch ihre Götter und Heiligthümer auf die griechischen Küsten und Eilande verpflanzten.* Ein solches Volk in jenen Urzeiten kennen wir nur an den Phöniciern, deren lange daurendes Wirken und Walten, ja deren Ansiedelungen in jenen Gegenden geschichtlich nicht zu läugnen 
 
-
-### 0011
-
--( 4 )-
-Wäldern bedeckt bildete das fast unzugängliche Ey-
-land (5) nur Ein zusammenhangendes Gebirg ( )
-von dessen höchstem Gipfel während des Kampfs um
-Troja Poseidon die ganze Bergkette des Ida, des Pria-
-mus Stadt und der Danaer Schiffe überschaut (7).
-Dort ward in unbestimmbarer Vorzeit ein geheimniß-
-voller Götterdienst gestiftet und wenn die vielreiche joni-
-sche Samos des göttlich geachteten Mannes sich rühmt,
-der zuerst einen höhere Menschlichkeit beabsichtenden
-Bund ersonnen, so ist die unansehnliche Samos Tra-
-ciens herrlicher in der Geschichte der Menschheit durch
-den Dienst der Kabiren, dem ältesten des ganzen Grie-
-chenlandes, der mit dem ersten Licht höheren und besse-
-ren Wissens in diesen Gegenden aufging, und der nicht
-eher als zugleich mit dem alten Glauben selbst unterge-
-gangen scheint. Aus den Wäldern Samothraciens er-
-hielt Griechenland mit der geheimeren Göttergeschichte
-zuerst den Glauben an ein zukünftiges Leben. Besser
-und für das Leben wie für den Tod fröhlicher wurden
-nach allgemeiner Überzeugung die dort Eingeweih-
-ten (s). Eine Zuflucht des Unglücks, ja des Verbre-
-chens, so weit es durch Bekenntniß und Entsündigun-
-gen versöhnt werden mochte (), hielt, in Zeiten frühe-
-rer und späterer Wildheit, samothracischer Gebrauch
-
-
-### 0012
-
--(5 ) -
-menschliches Gefühl aufrecht. Kein Wunder, daß der
-Name der heiligen Insul ( 1) mit allem verwebt wur-
-de, was die ältesten Geschichten Ehrwürdiges und Ruhm-
-volles aufbewahrten. Jasion und Dardamus, Orpheus
-und die Argonauten, Herkules auch und Ulysses, sollen
-teils den geheimen Dienst dort geordnet, teils die
-Weihen empfangen haben ( ). Den Pythagoras nennt
-eine weder unwahrscheinliche noch unwichtige Nachricht
-unter denen, die Weisheit dort suchten und fanden ().
-Bey den kabirischen Orgien sahen sich zuerst der mace-
-donische Philipp und, noch Kind, die Mutter des großen
-Alexander Olympias, vielleicht nicht ohne Einfluß auf
-das künftige Schicksal ihres Sohns (13). Selbst der
-Römer Herrschaft schonte der Freyheit und alten, wie
-es scheint, theokratischen Verfassung Samothraces (l);
-dort suchte seines Reiches beraubt der letzte macedonische
-König eine Freystatt, aus der ihn nicht Gewalt der
-schon übermüthig herrschenden Römer, sondern die Hei-
-ligkeit des Orts selbst und der am eigenen Feldherrn ver-
-übte Mord austrieb (15). Dort hätte, wenn nicht
-durch Nordstürme zurückgetrieben, kurz vor seinem Ende
-noch der edle Germanicus die Weihen empsangen ().
-Schriftsteller aus späterer Kaiserzeit erwähnen der samo-
-tbracischen Heiliathümer im Genuß fortdaurender Ver-
-
-
-### 0013
-
-
-### 0014
-
--f ---
-gleichbar, oder mit ihnen wirklich und dem Grundbe-
-griff nach Eins gewesen. Eben so ungewiß ist, wodurch
-sich diese Götter als Gegenstände der Geheimlehre von
-denselben Göttern im öffentlichen Dienst und allgemei-
-nen Glauben unterschieden. Und doch vermag nur diese
-vereinte Kenntniß gründlichen Aufschluß zu geben über
-den Sinn der samothracischen Lehre, über das eigentli-
-che, ihr zu Grunde liegende, System. Eine einzige
-durch besonderes Glück gerettete Nachricht () scheint
-mit den wahren vom ersten Ursprung sich herschreiben-
-den Namen zugleich die urkundliche Zeit- und Geburts-
-folge der samothracischen Götter erhalten zu haben.
-Billig schien daher, diese allen Untersuchungen zum
-Grunde zu legen. So lautet die Stelle des griechischen
-Auslegers, dem wir die Erhaltung jener Nachricht ver-
-danken. In Samothrace empfängt man die Weihen
-der Kabiren. Mnasras sagt, es sein deren drei der
-Zahl nach, Axieros, Axiokersa, Axiokersos. Axieros
-sei die Demeter, Axiokersa die Persephone, Axiokersas
-aber der Hades. Einige fügen auch einen vierten hin-
-zu, Kaswilos genannt, welcher, wie Dionysodoros er-
-zählt, Hermes ist (). Auf die Folge dieser Persön-
-lichkeiten, auf die einer jeden zukommende Zahl legt
-diese Stelle ein deutliches Gewicht; zugleich da sie die
-
-
-### 0015
-
-
-### 0016
-
-(9 )
-nügender Aufschluß möglich ist, sei dahingestellt; wis
-glaubten einen andern von früheren Forschern betretenen
-Weg wieder einschlagen zu müssen. Welches Volks auch
-immer die Namen und die dadurch bezeichneten Göttee
-ursprünglich sein mögen, eines vorzugsweise die Meere
-beschiffenden Volkes waren sie gewiß. Denn das ist
-der allgemeinste Glaube, daß jene Götter zumal den
-Seefahrenden hülfreich und heilbringend sein (5). Der
-Ursprung wie die Beständigkeit dieses Glaubens, läßt
-schwerlich eine andere Erklärung zu, als daß sie zuerst
-als die Götter eines zur See unternehmenden also be-
-günstigt scheinenden Volkes bekannt wurden. Wie na-
-türlich auch, daß fern herschiffende Fremdlinge in jenen
-noch jetzt nicht ungefährlichen Meeren, auf dessen In-
-suln außer den Geschäften des Handels Unwetter und
-Stürme sie oft lange Zeit zurückhalten mußten, die
-heimischen Götter wieder zu finden und zu verehren
-wünschten, daß also dieselben Schiffe, welche Räuch-
-werk, Purpur oder Elfenbein dahin führten, auch ihre
-Götter und Heiligthümer auf die griechischen Küsten
-und Eylande verpflanzten (). Ein solches Volk in
-jenen Urzeiten kennen wir nur an den Phöniciern, deren
-lange daurendes Wirken und Walten, ja deren Ansiede-
-lungen in jenen Gegenden geschichtlich nicht zu läugnen
-
-
-### 0017
-
-### 0018
-
--( 11 )-
 gewachsen glaubte, eine neue Wuth von Sprachablei-
 tungen alles aus allem zu machen und auf wahn-witzige
 Art auch in der alten Götterfabel alles mit allem zu ver-
@@ -194,7 +49,7 @@ nach Griechen-Art, welche die ältesten Götter im Rei-
 che des Zeus wiedergeboren werden läßt, erscheint diese
 Penia beim Gastmahl der anderen Götter. Aber es
 läßt sich nicht zweifeln, daß Plato hier wie anderwärts
-nur eine schon vorhandene Fabel frey behandelt, und der
+nur eine schon vorhandene Fabel frei behandelt, und der
 erste Stoff seiner Erzählung ein Bruchstück ist jener
 uralten Lehre, nach welcher Eros der erste der Götter
 aus dem Weltey hervorgeht, vor ihm aber nur die das
@@ -520,7 +375,7 @@ oder Grundanfang der ganzen sichtbaren Natur; dann
 Dionysos, Herr der Geisterwelt. Über Natur und
 Geisterwelt das die beiden sowohl unter sich als mit
 dem Überweltlichen vermittelnde, Kadmilos oder Her-
-mes (8s). Über diesen allen der gegen die Welt freye
+mes (8s). Über diesen allen der gegen die Welt freie
 Gott, der Demiurg (d). Also ein von untergeordne-
 ten Persönlichkeiten oder Naturgottheiten zu einer höch-
 sten sie alle beherrschenden Persönlichkeit, zu einem über-
@@ -529,7 +384,7 @@ Lehre (). Noch weit entfernt aber ist diese Darstel-
 lung von jener andern Behauptung, die zuerst War-
 burton ausgeschmückt, nach ihm auch deutsche Gelehrte
 annehmlich gefunden, welcher zufolge das eigentliche
-Geheimniß aller Mysterien des Alterthums die Lehre
+Geheimniß aller Mysterien des Altertums die Lehre
 von der Einheit Gottes war, und zwar in jenem ver-
 neinenden alle Vielheit ausschließenden Sinne, den die
 jetzige Zeit mit diesem Begriffe verbindet. Undenkbar
@@ -563,7 +418,7 @@ Begriff doch eigentlich immer jenen Behauptungen zu
 Grund gelegt wird, widerstrebt dem ganzen Alter-
 thum und der schöneren Menschlichkeit, die sich ganz in
 dem Ausspruche des Heraklit spiegelt, dem auch Plato
-Beyfall gegeben: Das Eine weise Wesen will nicht das
+Beifall gegeben: Das Eine weise Wesen will nicht das
 alleinige genannt sein, den Namen Zeus will es (ss)!
 Eine andere Folge möchte man versucht sein, jener ob-
 wohl flüchtigen Vergleichung zu geben zwischen samo-
@@ -594,7 +449,7 @@ einen neuen Strom von Erkenntniß eröffnet hätte, als
 den durch eine frühere schon eröffneten nur in ein engeres,
 aber eben darum sicherer fortleitendes Beet eingeschlos-
 sen? Wenn sie, nach einmal eingetretener Verderbniß
-und unaufhaltsamer Entartung in Vielgötterey, mit
+und unaufhaltsamer Entartung in Vielgötterei, mit
 weisester Einschränkung, von jenem Ursystem nur einen
 Teil, aber doch diejenigen Züge erhalten hätte, die
 
@@ -864,7 +719,7 @@ ibrem tiefsten Sinn nach die heilig geachtete Lehre der
 ### 0047
 
 -( 40 -
-Kabiren. In diesen Ausdrücken freylich wurde sie dort,
+Kabiren. In diesen Ausdrücken freilich wurde sie dort,
 in Samothrace, schwerlich vorgetragen; ohnehin hatte
 die Einweihung in die Geheimnisse mehr die Absicht,
 sich für Leben und Tod den höheren Göttern zu verbin-
@@ -881,7 +736,7 @@ sellt (112). In dem Sinn mochten die Kabiren oder
 ihre Diener wohl Erfinder von Zaubergesängen heißen,
 wie Sokrates sagt, das Kind in uns müsse immerfort
 beschworen und wie mit Zaubergesängen geheilt werden,
-bis es von der Todesfurcht frey sei (0). Von der ei-
+bis es von der Todesfurcht frei sei (0). Von der ei-
 nen Seite ganz auf die Gesinnung und das Leben sich
 hinrichtend mochte die eigentliche Lehre von den anderen
 ganz versinnlichet werden, wahrscheinlich indem man den
@@ -1027,7 +882,7 @@ l. c. "Cacs eam antiquo nomine Dardaniam
 , . memnte namnenlich Strabo, 8tab.
 Geogr. I. p 49 die Anschwellung sei durch die einströ-
 menden Flüsse nach und nach bewirkt worden.
-(3) Der Beyname des Erderschüttrers, den Posei-
+(3) Der Beiname des Erderschüttrers, den Posei-
 daon in den homerischen Gedichten führt, und die fortdau-
 renden Wirkungen des unterirdischen Feuers in jenen
 
@@ -1119,7 +974,7 @@ p. 639. Aber eben diese Frage zeigt, daß es Verbrechen
 gab, die nicht erlaubten, sich den Göttern zu nähern.
 Hesych. II. p. 293. sagt unbestimmt: one eeeie Ka-
 Bela, zz- zaaea ov, aber alle Umstände, besonders
-die Eleusinische Strenge, lassen vermuthen, daß nur un-
+die Eleusinische Strenge, lassen vermuten, daß nur un-
 verschuldeter Mord der Versöhnung fähig war.
 (10) Sacram hanc insulam et august. totam at-
 que inviolati soli esse, sagt der Römer L. Atilius in
@@ -1251,7 +1106,7 @@ thewohl versuchen, aber ohne zu irgend einer Gewißheit
 zu gelangen, noch häufigen Fehlgriffen zu entgehen. So
 wenn Bochart den Namen Axieros aus dem hebräischen
 n, Achsi-Eres, Mein ist die Erde, er-
-klärt, so ist dieß freylich leicht genug, aber im Grunde
+klärt, so ist dieß freilich leicht genug, aber im Grunde
 sind wir damit nicht mehr gefördert, als der Grieche,
 wenn er in seiner nare eine Inno, Erdmutter, such-
 te. Ceres ist wohl auch die Mutter-Erde, aber dieß
@@ -1260,7 +1115,7 @@ gnügt man sich aber vollends mit allgeme nen Begriffen,
 wie magnipotens, perfecte sapiens u. ähnl., wo ist
 noch einige Sicherheit der Erklärung, wo noch eine Spur
 der Bestimmtheit und Schärfe, die wir in allen Begrif-
-fen des Alterthums antreffen? Daß man die Sprache,
+fen des Altertums antreffen? Daß man die Sprache,
 in welcher etymologisirt wird, nicht blos aus Wörterbü-
 chern, sondern aus den Quellen und von den ersten Wur-
 zeln her kenne, sollte sich von selbst verstehen. Aber auch
@@ -1499,7 +1354,7 @@ pium superias kann sie nicht heißen, denn sie geht durch
 alles hindurch. Aber die bloße Ewigkeit, was man nach
 jetzigen Schulhegriffen so nennt, ist sie doch auch nicht,
 so wenig als der Satz: "Ormusd und Ahriman, beide
-gab die gränzenlose Zeit, nur soviel heißen kann: "Bey-
+gab die gränzenlose Zeit, nur soviel heißen kann: "Bei-
 de sind oder waren von aller Ewigkeit.
 (45) Euseb. Praep. ev. L. II. c. 10. wie Tozgaoe
 durch Mischung übersetzt, erweckt leicht einen falschen
@@ -1607,11 +1462,11 @@ des Phaethon, samothracischen Gottheiten, mit denen
 er ein Ganzes bildet; der bei Pausanias durch Himeros
 und Eros, mit denen er Einen Kunstkreis erfüllt. Die
 Lrilogie bei Pausanias scheint, ganz aus dem Geiste des
-Meisters gekommen, ein künstlerisch-freyes Spiel gewe-
+Meisters gekommen, ein künstlerisch-freies Spiel gewe-
 sen zu sein, ob ihn gleich vielleicht nicht der spitzfindige
 Gedanke, die Abstufungen einer bloßen Empfindung dar-
 zustellen, sondern etwas Poetischeres und Symbolischeres
-begeisterte. In der andern hatte er sich freywillig an
+begeisterte. In der andern hatte er sich freiwillig an
 
 
 ### 0070
@@ -1638,7 +1493,7 @@ das alte nach Varro für creo gebrauchte cereo, wo-
 von Cerus manus, das Festus durch creator bonus er-
 klärt.
 (49) Spanhem. ad Call. hymn. in Cer. 113.
-Creuzer IV. 10. 236. 253. Bey Euripides, Phcen.
+Creuzer IV. 10. 236. 253. Bei Euripides, Phcen.
 689., heißen Ceres und Proserpine die uo0 e.
 (50) Diese den aramäischen Mundarten ganz ge-
 wöhnliche Bedeutung des Worts wurde bei den
@@ -1654,7 +1509,7 @@ denn daß sie auch dieser Mundart nicht fehlt, zeigt Th.
 1Par. 4, 14., wo beigesetzt wird, "denn sie waren Cha-
 rasim, d. h. Zauberer (s. Sim. Onom. p. 166.), etwa
 wie die wegen Wahrsagekunst berühmten Einwohner von
-Telmassus und die wegen Zauberey berüchtigten Männer
+Telmassus und die wegen Zauberei berüchtigten Männer
 und Weiber Thessaliens. Aus Esr. 2, 59. Neh. 7, 61.
 lernen wir den Namen eines Orts zr y kennen in
 Chaldäa, wo auch der mit Axieros gleichlautende Name
@@ -1695,7 +1550,7 @@ gen.
 (55) Der Beweis hievon wird für eine andre Gele-
 genheit vorbehalten.
 (50) Arnkiel's cimbrische Heyden-Religion I. S. 62.
-"Alle Zauberey hat in der nordischen Welt von ihm
+"Alle Zauberei hat in der nordischen Welt von ihm
 (Othin) ihren Ursprung u. s. w. Aus Snoro Sturles.
 Chron. Norwag. Ebendas. S. 61. heißt es: "Wenn
 seine Völker in Nöthen und Gefährlichkeiten waren zu
@@ -1710,7 +1565,7 @@ Züge in den Erzählungen von Osiris und Othin muß
 jedem auffallen, der auch nur den Anfang von Plut. de
 Is. et Os. c. 13. liest:Osiris, wird erzählt, habe
 gleich zuerst die Aegypter von der thierischen Lebensweise
-befreyt, indem er ihnen die Früchte gezeigt, Gesetze ge-
+befreit, indem er ihnen die Früchte gezeigt, Gesetze ge-
 geben und die Götter ehren gelehrt. Darauf habe er das
 ganze Land, dessen Sitten zu mildern, durchzogen, am
 wenigsten der Waffen sich bedienend, sondern die Meisten
@@ -1759,7 +1614,7 @@ das Weltall durch einen doppelten Zauber, da der spä-
 tere den frühern nicht aufhebt oder vernichtet, sondern
 überwindet. Dem wäre so, auch wenn der Name blos
 den allgemeinen Begriff des Zauberers ausdrückte. Doch
-ist zu vermuthen, nicht Kersos, sondern Kersor sei das
+ist zu vermuten, nicht Kersos, sondern Kersor sei das
 ursprüngliche, wie Amilcar im Griechischen, 'Aec
 lautet und Barthélemy, Reflexions sur quelques
 monumens Phéniciens (Mém. de l'Ac. des Inscr.
@@ -1907,7 +1762,7 @@ magus nicht ausschließt, so wenig in der Bedeu-
 tung von mago, prastigiatrix den von fabricatrix (re-
 rum natura, Lactant. Epit. 68.) ausschließt. Eine
 Frage ist, wie weit man das Ansehn der beiden Inschrif-
-ten gelten läßt. Bey der von Maltha würde etwas auch
+ten gelten läßt. Bei der von Maltha würde etwas auch
 darauf ankommen, ob es eingeborne Tyrier sind, deren
 Namen in's Griechische, oder geborne Griechen, deren
 Namen in's Phönicische übersetzt worden. Verschiedne
@@ -1951,7 +1806,7 @@ Keoo Xe, endlich noch Dionysos selbst, mit der glei-
 chen Bedeutung gesellte! Doch davon jetzt nicht! Crenzer
 IV. 75. Anm. hat schon den Xepdc mit dem Xoa zusam-
 menzubringen gesucht, so wie mit dem hesiodischen Chry-
-saon und dem Adj. eepoc, das als Beywort der Ce-
+saon und dem Adj. eepoc, das als Beiwort der Ce-
 
 
 ### 0080
@@ -2139,7 +1994,7 @@ heiten spricht, so wäre unstreitig folgerichtiger zu schließen,
 daß weil Kadmilos, Kasmilos, Camillus unwidersprech-
 lich und unbestreitbar hebräische Wörter sind, die andern,
 derselben Lehre und demselben Geheimdienst angehörigen,
-auch aus dieser Sprache sein müssen. Freylich meynt
+auch aus dieser Sprache sein müssen. Freilich meynt
 Münter, aber ohne allen Grund, die drei ersten Kabi-
 ren seien aus Aegypten gekommen, der vierte erst von
 den Phöniciern eingeführt worden. Sainte-Croix da-
@@ -2187,7 +2042,7 @@ aufgestellten mythologischen Grundsätze.
 (75) Daher auch die Einschränkung a. a. . ,Die-
 ses Hervorgehen und Zurückkehren aus Einem Wesen
 und in dasselbe ward ohne Zweifel dem Gebildeteren
-als Grundlehre vorzutragen, die freylich der rohe Pe-
+als Grundlehre vorzutragen, die freilich der rohe Pe-
 lasger nicht zu fassen im Stande war. Ihm gab man
 dafür eine Reihe von Sterngöttern und ihnen entsprechen-
 
@@ -2208,7 +2063,7 @@ Procl. in Plat. Theol. VI, 22.
 (80) Aber auch Dionysos ist Demiurg und zwar der
 den Hephästos gewißermaßen überwindende Demiurg,
 der die Schöpfung aus den Banden der Nothwendigkeit
-erlöst und in freye Mannichfaltigkeit aus einander setzt.
+erlöst und in freie Mannichfaltigkeit aus einander setzt.
 Dieser scheinbare Widerspruch löst sich schon durch die
 allgemeine Bemerkung, daß ein Wesen oder Princip,
 das höher steht als ein andres und in sofern sein Gegen-
@@ -2269,7 +2124,7 @@ flaminicarum et flaminum prministros. Daher ist
 minius Camillus puer dicebatur ingenuus patrimus
 et matrimus, qui Flamini Diali ad sacra premini-
 strabat, nicht so zu verstehen, als wolle er nur das
-Beywort Flaminius erklären; sondern der dem Iupiters-
+Beiwort Flaminius erklären; sondern der dem Iupiters-
 Priester dienende Knabe hieß ursprünglich und vorzugs-
 weise Camillus. Daß er ae sein mußte, ein
 Knabe, deß beide Eltern lebten, war nicht weniger be-
@@ -2410,7 +2265,7 @@ eine Epoptie zu nennen, fängt von der kosmogonischen Art
 der Untersuchung an und steigt von da zu derjenigen auf,
 die göttliche Dinge betrifft."
 (86) Sainte-Croix p. 355.
-(87) Die Freygebigkeit mit den Erklärungen durch
+(87) Die Freigebigkeit mit den Erklärungen durch
 Betrug, Priestergaukeley u. s. w. ist gewiß bezeichnend
 für die letzte Zeit. Der Lüge werden Kräfte zugetraut,
 die man kaum der Wahrheit zuschreibt. So blödsinnig
@@ -2427,7 +2282,7 @@ sche Aufhören und Wiederkommen des Tons, auch daß
 offenbar mehrere solcher tönenden Säulen waren, Um-
 stände, die kürzlich Iacobs in der ang. Abh. mit scharf-
 sichtiger Gewandtheit zusammengestellt, hinderten nicht,
-Priesteranstalt dabei zu vermuthen. Nun kommen die
+Priesteranstalt dabei zu vermuten. Nun kommen die
 gewiß unverdächtigen Franzosen, und siehe noch jetzt tö-
 nen bei'm Aufgang der Sonne die Granit-Blöcke des
 thebäischen Thals.
@@ -2495,7 +2350,7 @@ Zeiten, von Iablonsky, Georgii (Alphab. Tibet.),
 T0ega und andern, gegeben worden sind. Wie unnütz
 also muß es erscheinen, ägyptische Etymologieen noch wei-
 ter, auch auf griechische Namen, auszudehnen! Hievon
-nur Ein Beyspiel an dem orphischen Herikapäos. Eh-
+nur Ein Beispiel an dem orphischen Herikapäos. Eh-
 mals wollte man in ihm durch kabbalistische Rechnung den
 Schem hamphorasch (Iehovah-Namen) finden; das
 nennt Bentley ep. ad Mill. p. 4. mit Recht aniles Ca-
@@ -2516,7 +2371,7 @@ er wohl gethan, den ineptis plerumque et cassis Ety-
 mologiis (nämlich aus griechischer Sprache) nicht nach-
 zugehen; schwören wolle er, daß selbst Orpheus keine
 anzugeben wüßte. Ohne sich zu vermessen, könnte man
-dagegen schwören, eine (freylich nicht griechische) Etymo-
+dagegen schwören, eine (freilich nicht griechische) Etymo-
 logie anzugeben, die der unvergleichliche Bentley selbst,
 wenn er von den Todten wiederkäme, als die wahre er-
 kennen würde. Doch erwarte man darum nichts außer-
@@ -2592,8 +2447,8 @@ die aber alle wahrscheinlich von der Art des Worts 0oe
 waren (Anmerk. 81.). So behielt Eleusis die fremd-
 lautende Entlassungsformul, so die Sabazien ihr Hyes
 Attes! näherliegender Vergleichungen nicht zu gedenken!
-Doch wozu auch nur dieses, da das Beyspiel der beweg-
-lichen Griechen allein entscheidend ist, die selbst im freyen
+Doch wozu auch nur dieses, da das Beispiel der beweg-
+lichen Griechen allein entscheidend ist, die selbst im freien
 dichterischen Gebrauch die Namen beibehielten, von de-
 nen Herodot (weit bestimmter davon redend, als von der
 ägyptischen Herkunft) sich durch seine Untersuchun-
@@ -2721,8 +2576,8 @@ cola und nach ihm Wachter u. a. vom griech. Koe
 herleiten. Nun sagt Is. Vossius ad Hesych. voc. Ia-
 Bago- not. 12. "asa0, 560, Köso-
 (auch wohl das bei Hesych. gleich darauf folgende zZ-
-oc) ejusdem omnia videatur naturae. Bey den un-
-zähligen Beyspielen der Verwechselung von R und I ist
+oc) ejusdem omnia videatur naturae. Bei den un-
+zähligen Beispielen der Verwechselung von R und I ist
 nicht zu zweifeln, daß "0 für "00 gesetzt wird,
 und daß dieß mit zs-poc einerley Etymon habe, ist eben
 so wenig zweifelhaft. Hiedurch ist also die in den Vor-
@@ -3086,17 +2941,17 @@ diciis collegisse in simulacris, aliud signcae
 ccelum, aliud terram, aliu exempla rerum, quas
 Plato appellat Ideas. Hier behauptet Varro entschie-
 2
-den die Drey- nicht die Zweyzahl in den samothracischen
+den die Drei- nicht die Zweyzahl in den samothracischen
 Vorstellungen. Es leidet auch keinen Zweisel, daß aus
 den angegebnen drei Grundbegriffen die ganze Reihe zu
 entwickeln oder umgekehrt, die ganze Folge der Zahlen
-auf die Dreyheit zurückzubringen ist (redigenda, wie es
+auf die Dreiheit zurückzubringen ist (redigenda, wie es
 oben ausgedrückt wurde). Nämlich alle kabirische We-
 sen sind nur fortdaurende Steigerungen, so daß dieselbe
 Zahl oder Persönlichkeit in verschiedenen Potenzen wieder-
 kehrt; alle Zahlen demnach auf gewisse, und zwar un-
 streitig drei, Grundzahlen zurückkommen. So ist jene
-Dreyheit das (wie er sich ausdrückt) de quo, das a quo
+Dreiheit das (wie er sich ausdrückt) de quo, das a quo
 und das secundum quod aliquid fiat, offenbar eben
 die Reihe, welche die drei ersten samothracischen Gott-
 heiten wirklich bilden. Demeter-Persephone (in der wah-
@@ -3105,8 +2960,8 @@ Dionysus das a qu0, Kadmilos das secundum quod
 aliquid fit, und der unbefangene Forscher wird gerne
 gestehen, daß die Varronische Auslegung für das Ganze
 unserer Ansicht keine geringe Bestätigung ist. Iene allen
-zu Grunde liegende Dreyzahl kann indeß fortschreitend
-sich wiederholen, und so wie die Drey Persephone, Dio-
+zu Grunde liegende Dreizahl kann indeß fortschreitend
+sich wiederholen, und so wie die Drei Persephone, Dio-
 nysos, Kadmilos sein können, so können sie auch Iuno,
 Iupiter, Minerva sein, wie sie Varro gleich nach der
 eben angeführten Stelle erklärt. Varro's Aeußerungen
@@ -3229,7 +3084,7 @@ exercens artem, incantator; daher auch D 2 schlecht-
 weg incantationes, Es. 47, 9. 12. Diese mit dem,
 Wort 2r 2n verbundene Bedeutung läßt sich nicht
 denken ohne eine Vorstellung, ähnlich oder gleich der,
-die dem System der Kabiren zu Grunde liegt. Bey den
+die dem System der Kabiren zu Grunde liegt. Bei den
 vielen Bemühungen, die Bedeutung des Kabiren-Na-
 mens zu enträthseln, mußte wohl auch einer oder der an-
 dere auf jene Wurzel fallen. Der Erste, soviel ich weiß,
@@ -3380,7 +3235,7 @@ det, vocatur 2f; auch das arab. ,- scivit, co-
 gnovit, wovon ,-, sciens gnarus, selbst in der Be-
 .
 deutung von omniscius, qui e preterita e futura no-
-vit, der alle Dinge im Zusammenhang kennt, Bey-
+vit, der alle Dinge im Zusammenhang kennt, Bei-
 wort von Gott. Indisch Gelehrte mögen Aufschluß ge-
 ben, in wiefern das indische Cabi oder Cavi wirklich ei-
 nen Bezug zu diesem Worte hat.
@@ -3488,12 +3343,12 @@ Die voranstehende Abhandlung gehört ihrer ursprünglichen Be-
 stimmung nach zu einer Reihe von Werken, die sich auf die Welt-
 alter als gemeinschaftlichen Mittelpunct beziehen. Daß sie durch
 eine äußere Veranlassung früher erscheint, konnte jene Bestimmung
-nicht ändern, und als Beylage jenes Werks wird sie darum in dem
+nicht ändern, und als Beilage jenes Werks wird sie darum in dem
 weiteren Umkreis erscheinen, in den sie sich durch den Buchhandel
 verbreitet. Dieser Zusatz hebt ihre Selbstständigkeit nicht auf, da
 man ihr hoffentlich zugestehen wird, auch ganz für sich und ohne
 alle Beziehung eristiren zu können. Nicht an sich, nur der Inten-
-tion des Verfassers nach Beylage eines andern Werks, ist sie zu-
+tion des Verfassers nach Beilage eines andern Werks, ist sie zu-
 gleich Anfang und Übergang zu mehreren andern, deren Absicht
 ist, das eigentliche Ursystem der Menschheit, nach wissenschaftlicher
 Entwickelung, wo möglich auf geschichtlichem Weg, aus langer Ver-
