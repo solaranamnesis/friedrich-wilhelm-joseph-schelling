@@ -12,443 +12,8 @@
 
 ---
 
-Im Norden des aegäischen Meers erhebt sich die Samothracische Insul, von Anfang wie es scheint Samos genannt, darauf zum Unterschiede von der jonischen und wegen der Nähe Thraciens die thracische.* Erdkundige des Altertums schon vermuteten große Naturerschütterungen, die diese Gegenden noch zu Menschen-Zeiten betroffen. Es sei, daß durch bloße Anschwellung gehoben die Wasser des Euxinischen Meers erst die thracische Meerenge, dann den Hellespontus durchbrochen,* oder daß die Gewalt eines unterirdischen Feuers den Stand der Gewässer verändert*: die ältesten samothracischen Erzählungen, die durch aufgezeigte Denkmäler in Erinnerungen sich verwandelten, erhielten eine Kunde dieser Ereignisse und bis in jene Zeiten hinauf rückten sie die Verehrung und den Schutz der vaterländischen Götter.* Die Schrecken dieser Erinnerungen wurden erhöht durch die stets gegenwärtigen Schauer einer großen und mächtigen Natur; von Wäldern bedeckt bildete das fast unzugängliche Eiland* nur Ein zusammenhangendes Gebirg* von dessen höchstem Gipfel während des Kampfs um Troja Poseidon die ganze Bergkette des Ida, des Priamus Stadt und der Danaer Schiffe überschaut.* Dort ward in unbestimmbarer Vorzeit ein geheimnißvoller Götterdienst gestiftet und wenn die vielreiche jonische Samos des göttlich geachteten Mannes sich rühmt, der zuerst einen höhere Menschlichkeit beabsichtenden Bund ersonnen, so ist die unansehnliche Samos Traciens herrlicher in der Geschichte der Menschheit durch den Dienst der Kabiren, dem ältesten des ganzen Griechenlandes, der mit dem ersten Licht höheren und besseren Wissens in diesen Gegenden aufging, und der nicht eher als zugleich mit dem alten Glauben selbst untergegangen scheint. Aus den Wäldern Samothraciens erhielt Griechenland mit der geheimeren Göttergeschichte zuerst den Glauben an ein zukünftiges Leben. Besser und für das Leben wie für den Tod fröhlicher wurden nach allgemeiner Überzeugung die dort Eingeweihten.* Eine Zuflucht des Unglücks, ja des Verbrechens, so weit es durch Bekenntniß und Entsündigungen versöhnt werden mochte,* hielt, in Zeiten früherer und späterer Wildheit, samothracischer Gebrauch menschliches Gefühl aufrecht. Kein Wunder, daß der Name der heiligen Insul* mit allem verwebt wurde, was die ältesten Geschichten Ehrwürdiges und Ruhmvolles aufbewahrten. Jasion und Dardamus, Orpheus und die Argonauten, Herkules auch und Ulysses, sollen teils den geheimen Dienst dort geordnet, teils die Weihen empfangen haben.* Den Pythagoras nennt eine weder unwahrscheinliche noch unwichtige Nachricht unter denen, die Weisheit dort suchten und fanden.* Bei den kabirischen Orgien sahen sich zuerst der macedonische Philipp und, noch Kind, die Mutter des großen Alexander Olympias, vielleicht nicht ohne Einfluß auf das künftige Schicksal ihres Sohns.* Selbst der Römer Herrschaft schonte der Freiheit und alten, wie es scheint, theokratischen Verfassung Samothraces*; dort suchte seines Reiches beraubt der letzte macedonische König eine Freistatt, aus der ihn nicht Gewalt der schon übermüthig herrschenden Römer, sondern die Heiligkeit des Orts selbst und der am eigenen Feldherrn verübte Mord austrieb.* Dort hätte, wenn nicht durch Nordstürme zurückgetrieben, kurz vor seinem Ende noch der edle Germanicus die Weihen empfangen.* Schriftsteller aus späterer Kaiserzeit erwähnen der samothracischen Heiligtümer im Genuß fortdaurender Verehrung und wenn auch nicht in noch bestehenden heiligen Gebräuchen der Altertumsforscher Züge aus dem Bild des alten samothracischen Dienstes zu erblicken meinte,* so würde man andern Spuren zufolge seine Fortdauer bis zum Ende des zweiten ja wohl bis in's dritte Jahrhundert der christlichen Zeitrechnung verfolgen können.* Wenn einst, da mehr als je wieder die öffentliche Aufmerksamkeit dem alten Griechenlande sich zuwendet, dieß fast vergessene Eiland gleich andern durchforscht würde, vielleicht daß nicht Schätze der Kunst wie jener unvergleichliche Fund von Aegina, aber Denkmäler des ältesten Glaubens, wichtiger noch als jener für die ganze Geschichte unseres Geschlechts, die Ausbeute solcher Nachsuchungen würden.* Einer wiederholten Betrachtung schien dieser geheime Götterdienst zwar in jeder Hinsicht, aber zumal aus folgenden Gründen, nach so vielen Untersuchungen nicht unwürdig. In Dunkel gehüllt ist noch die Bedeutung der einzelnen Gottheiten. Zwar ihre griechische Namen nennt mehr als Ein Schriftsteller. Wir wissen, daß Demeter, Dionysos, Hermes, auch Zeus als Kabiren verehrt wurden. Aber dieß sind für uns bloße Namen, die den Zweifel übrig lassen, ob die samothracischen Götter jenen bekannten Gottheiten etwa nur ähnlich und vergleichbar, oder mit ihnen wirklich und dem Grundbegriff nach Eins gewesen. Eben so ungewiß ist, wodurch sich diese Götter als Gegenstände der Geheimlehre von denselben Göttern im öffentlichen Dienst und allgemeinen Glauben unterschieden. Und doch vermag nur diese vereinte Kenntniß gründlichen Aufschluß zu geben über den Sinn der samothracischen Lehre, über das eigentliche, ihr zu Grunde liegende, System. Eine einzige durch besonderes Glück gerettete Nachricht* scheint mit den wahren vom ersten Ursprung sich herschreibenden Namen zugleich die urkundliche Zeit- und Geburtsfolge der samothracischen Götter erhalten zu haben. Billig schien daher, diese allen Untersuchungen zum Grunde zu legen. So lautet die Stelle des griechischen Auslegers, dem wir die Erhaltung jener Nachricht verdanken. In Samothrace empfängt man die Weihen der Kabiren. Mnasras sagt, es sein deren drei der Zahl nach, Axieros, Axiokersa, Axiokersos. Axieros sei die Demeter, Axiokersa die Persephone, Axiokersas aber der Hades. Einige fügen auch einen vierten hinzu, Kaswilos genannt, welcher, wie Dionysodoros erzählt, Hermes ist.* Auf die Folge dieser Persönlichkeiten, auf die einer jeden zukommende Zahl legt diese Stelle ein deutliches Gewicht; zugleich da sie die ursprünglichen Namen enthält, gibt sie Anlaß zur Vergleichung und zu Erforschung des jeder Gottheit zu Grunde liegenden Begriffs. Denn gewagt, ja fast frevelhaft scheint es, die Namen von dem alten Geschichtschreiber zu nehmen, die Bedeutung aber aus anderen Quellen, ganz unabhängig, erforschen zu wollen. Aller Grund ist anzunehmen, daß der die verborgenen Namen gewußt, auch der Bedeutung im Allgemeinen nicht unkundig gewesen. Daß sie nicht hellenischem, daß sie, nach Griechen-Weise zu reden, barbarischen Ursprungs sind, ist anerkannt*; welcher Zunge, welchem Volk sie ursprünglich angehört, dieß ist eine von jeder geschichtlichen Voraussetzung unabhängige, einer rein sprachlichen Entscheidung fähige Frage. Dem fleißigen sein ganzes Leben in ägyptischen Forschungen vergrabenen Zoëga war natürlich, den Wurzeln dieser Namen in den zweifelhaften Überbleibseln altägyptischer Sprache nachzuspüren; wenn er aber durch seine Forschungen statt bestimmter, entschiedene Persönlichkeiten bezeichnender, Bedeutungen die allgemeinsten und unbestimmtesten zu Tage fördert, wenn Axieros den Allmächtigem, Kaswilos den vollkommen Weisen bedeuten soll,* so wird durch solche Erklärungen die Ableitung allein schon verdächtig. Ob ans indischen Sprachschätzen ein mehr genügender Aufschluß möglich ist, sei dahingestellt; wir glaubten einen andern von früheren Forschern betretenen Weg wieder einschlagen zu müssen. Welches Volks auch immer die Namen und die dadurch bezeichneten Götter ursprünglich sein mögen, eines vorzugsweise die Meere beschiffenden Volkes waren sie gewiß. Denn das ist der allgemeinste Glaube, daß jene Götter zumal den Seefahrenden hülfreich und heilbringend sein.* Der Ursprung wie die Beständigkeit dieses Glaubens, läßt schwerlich eine andere Erklärung zu, als daß sie zuerst als die Götter eines zur See unternehmenden also begünstigt scheinenden Volkes bekannt wurden. Wie natürlich auch, daß fern herschiffende Fremdlinge in jenen noch jetzt nicht ungefährlichen Meeren, auf dessen Insuln außer den Geschäften des Handels Unwetter und Stürme sie oft lange Zeit zurückhalten mußten, die heimischen Götter wieder zu finden und zu verehren wünschten, daß also dieselben Schiffe, welche Räuchwerk, Purpur oder Elfenbein dahin führten, auch ihre Götter und Heiligthümer auf die griechischen Küsten und Eilande verpflanzten.* Ein solches Volk in jenen Urzeiten kennen wir nur an den Phöniciern, deren lange daurendes Wirken und Walten, ja deren Ansiedelungen in jenen Gegenden geschichtlich nicht zu läugnen sind.* Dazu kommt die Versicherung des Herodot, den Schutzgöttern der Phönicier, deren Zeichen sie an den Vorderteilen der Schiffe führten, sei'n der Gestalt nach ähnlich gewesen die ägyptischen Kabiren.* Hat demnach Samothrace seine Götter, mittelbar oder unmittelbar, von Phönicischen Schiffern erhalten, und waren des Volks, deß die Götter, nach aller Wahrscheinlichkeit, auch die Namen, so ist der mächtigste Grund vorhanden, der Bedeutung jener Namen in phönicischen, oder was bei der unbestreitbaren Einerleiheit beider Sprachen völlig gleichgültig ist, in hebräischen Sprachwurzeln nachzuspüren. Denn daß Götternamen des Morgenlandes, wo selbst menschliche Eigennamen, bedeutend sind, bedarf des Beweises nicht und kaum der Erinnerung. Wir betreten also jenen gefährlichen Weg der Sprachforschung, der sich mit Untersuchung der Herkunst und Abstammung von Namen oder Wörtern abgibt, nicht unwissend, was von dessen Schwierigkeit und Undankbarkeit vorsichtige Kenner zu äußern pflegen, nicht unkundig des von minder Bedächtlichen im Allgemeinen darüber ausgesprochenen Verdammungsurteils. Aber jede Forschung ist löblich an sich, den Unterschied macht nur die Art und das Verfahren. Mochte in einer Zeit, da leicht Jeder jeder Sache sich gewachsen glaubte, eine neue Wuth von Sprachableitungen alles aus allem zu machen und auf wahn-witzige Art auch in der alten Götterfabel alles mit allem zu vermischen bemüht sein: die Untersuchung der Herkunft und Abstammung der Wörter nicht blindlings, sondern kunstmäßig und nach den auch ihr zukommenden Regeln getrieben, wird immer der edelste Teil der Sprachforschung bleiben.* Das also den drei ersten Gottheiten gemeinschaftlich vorgesetzte Wort können wir als nicht bezeichnend für die besondere Natur einer jeden mit Schweigen übergehen.* Nach der wörtlichsten Übertragung aber kann der erste Name, Axieros, in phönicischer Mundart nicht wohl etwas anderes bedeuten, als den Hunger, die Armuth, und was daraus folgt, das Schmachten, die Sucht*; eine Erklärung, die auf den ersten Blick wunderlich scheinen mag, aber durch tiefere Betrachtung einleuchtet. Wir wollen nicht mit dem Allgemeinen uns begnügen, daß ein schlechthin erstes Wesen, wenn auch an sich überschwengliche Fülle, doch sofern es nichts hat, dem es sich mitteilen kann, als äußerste Armuth als höchste Bedürftigkeit sich selber erscheinen muß. Nicht darauf, daß im Begriff jedes Anfangs der Begriff eines Mangels liegt.* Wir eilen an etwas Bestimmtes zu erinnern, an jene Platonische Penia, die mit dem Überfluß sich vermählend Mutter des Eros wird. Zwar nach Griechen-Art, welche die ältesten Götter im Reiche des Zeus wiedergeboren werden läßt, erscheint diese Penia beim Gastmahl der anderen Götter. Aber es läßt sich nicht zweifeln, daß Plato hier wie anderwärts nur eine schon vorhandene Fabel frei behandelt, und der erste Stoff seiner Erzählung ein Bruchstück ist jener uralten Lehre, nach welcher Eros der erste der Götter aus dem Weltei hervorgeht, vor ihm aber nur die das Ei gebärende Nacht ist. Denn die Nacht sei das Aelteste in der ganzen Natur der Dinge, war Lehre aller Völker, die die Zeiten nach Nächten zählen,* obwohl es Entstellung ist, wenn man dieß erste Wesen zugleich als das oberste betrachtet. Aber was ist das Wesen der Nacht, wenn nicht Mangel, Bedürftigkeit und Sehnsucht? denn diese Nacht ist nicht Finsterniß, nicht das dem Licht feindliche, sondern das des Lichts harrende Wesen, sie ist die sehnsüchtige, zu empfangen begierige Nacht. Ein anderes Bild jener ersten Natur, deren ganzes Wesen Begehren und Sucht ist, schien das verzehrende Feuer, das, selbst gewissermaßen Nichts, nur ein alles in sich ziehender Hunger nach Wesen ist. Daher der uralte Lehrsatz: Feuer sei das Innerste, also auch das Älteste, durch Dämpfung des Feuers habe sich erst alles zur Welt angelassen. Daher, daß auch Hestia als das älteste der Wesen verehrt worden und die Begriffe der Ceres und Proserpina, der ältesten Gottheiten, mit dem der Hestia vermengt worden.* Aber wie schon die Weiblichkeit dieses vielnamigen Wesens, wie dunkler oder deutlicher alle Namen dieser ersten Natur auf die Begriffe der Sehnsucht und des schmachtenden Verlangens hindeuten; so zumal gehet das Wesen der Ceres, für welche der alte Geschichtschreiber die erste samothracische Gottheit erklärt, ganz auf in Sucht. Ich bin Deo, antwortet sie, zuerst sich kundgebend, den Töchtern des Celeus,* d. h. die Sehnsuchtkranke, die Schmachtende, eine Bedeutung, die der Zusammenhang fordern würde, wenn sie auch nicht aus Sprachforschung sich rechtfertigen ließe.* Wie Isis im Suchen des verlorenen Gottes, wird Ceres im Suchen der verlorenen Tochter ganz die Suchende. Doch liegt der erste Grund des Begriffes tiefer. Alles Unterste, unter dem nichts mehr ist, kann nur Sucht sein, Wesen, das nicht sowohl ist, als nur trachtet zu sein. Darum ist nach ägyptischer Ansicht Ceres Herrscherin der Todten,* deren Zustand allgemein als ein Zustand von Unvermögenheit und kraftlosem Streben nach Wirklichkeit gedacht wird. Die Unterwelt selbst heißt der geizige, der habsüchtige Dis oder Amenthes. Von Alters her wurden die Abgeschiedene von den Athenern Demetrische* genannt, weil man sich die vom Leib und der äußeren Welt Getrennte in einen Zustand lauterer Sucht versetzt dachte, aus demselben Grund also, warum die Manen in hebräischer Sprache die sich sehnenden, die verlangenden hießen.* Damit aber nicht jemand die Worte des weniger tiefsinnigen als witzigen römischen Dichters auch hieher anwende: Nimmer ja gehen Hunger zusammen und Ceres,* genügt zu erinnern, daß wir nicht bloß von einer fruchtbringenden, sondern auch von einer Ceres-Erinnis wissen, und wie die Erinnien überhaupt zu den älteren Gottheiten gehören,* so ist eben die fruchtbare Ceres die ältere; denn der gestillten Sucht muß die brennende vorausgehen, überschwenglicher Fülle der Fruchtbarkeit die größte Empfänglichkeit also verzehrender Hunger. Ihre volle Bedeutung erhält dadurch erst die Strafe des Erisichthon, den die zürnende Ceres mit unersättlichem Heißhunger* heimsucht. Denn es ist auch sonst dem tiefer Forschenden nicht fremd, daß die Götter durch Verstoßung in eben den Zustand strafen, der durch ihre Gunst überwunden worden. Darum leiden die Uneingeweihten in der Unterwelt die besondere Strafe, daß sie ein unfüllbares Gefäß rastlos zu füllen sich bestreben.* Diese Nachweisungen könnten hinlänglich scheinen zur Begründung der gegebenen Erklärung. Doch glauben wir, sie der Gewißheit näher bringen zu können. Es sind uns verschiedene Bruchstücke phönicischer Kosmogonieen erhalten. Eine derselben setzt über alle Götter die Zeit, die, weil das gemeinschaftlich Befassende und gleichsam Tragende aller Zahlen, selber nicht zählt, noch für eine Zahl gilt; ihr zunächst aber, also als erste Zahl, nennt sie die schmachtende Sehnsucht.* Ein anderes Bruchstück phönicischer Kosmogonie, dem das Zeichen hoher Alterthümlichkeit an der Stirne geschrieben steht, drückt sich so aus: Zuerst war der Hauch einer finstern Luft und ein trübes Chaos, dieß alles für sich gränzenlos. Als aber der Geist von der Liebe gegen die eigenen Anfänge entbrannte und eine Zusammenziehung entstand, wurde dieses Band Sehnsucht genannt, und dieß war der Beginn der Erschaffung aller Dinge.* Hier wird der Anfang in ein Entbrennen gegen sich selbst, ein sich selber Suchen gesetzt, das hieraus entstehende Band ist wieder, nur die gleichsam verkörperte, Sehnsucht und der erste Anlaß zu Erschaffung aller Dinge. Einheimisch in phönicischen Kosmogonieen war also die Vorstellung der Sehnsucht als Anfangs, als ersten Grundes zur Schöpfung. Aber war sie darum auch samothracisch? Hierauf antwortet eine Stelle des Plinius, der unter den Werken des Skopas die Venus, den Pothos, d. h. die Sehnsucht und den Phaëton nennt, Gottheiten (setzt er hinzu), die in Samothrace mit den heiligsten Gebräuchen verehrt werden.* Gewiß also ist, daß unter den samothracischen Gottheiten eine war, mit der der Begriff: Sehnsucht, verbunden wurde. Wir kennen mit ziemlicher Zuverläßigkeit alle samothracischen Gottheiten, aber es ist keine, welcher schmachtende Sehnsucht so eigen, so ganz angemessen wäre, als der, welche der alte Geschichtschreiber für Demeter erklärt, der also, welche Axieros genannt wurde.* Hiedurch glauben wir die gegebne Erklärung zu dem in solchen Untersuchungen möglichen Grad der Gewißheit gebracht. Was die folgenden Namen der zweiten und dritten Persönlichkeiten betrifft, Axiokersa und Axiokersos; so möchte man sich zunächst darüber wundern, daß keiner der bisherigen Forscher in ihnen die Spur der uralten Wurzel des Ceres-Namens erblick hat, da doch in diesem Zusammenhang alles aus Cerealischen Dienst und Lehre hindeutet. Wirklich ist Kersa nur nach einer andern Mundart dasselbe, was Ceres (in der alten Aussprache Keres).* Und da, nach einmal erwiesener Bedeutung der Axieros, daran, daß Axiokersa die Persephone ist, nicht zu zweifeln steht, so dient dieser Name nur als neuer Beleg des auch sonsther bekannten, daß Proserpina nur Ceres, die Tochter nur die Mutter ist in einer andern Gestalt, und auch wohl ihre Namen, wie oft ihre Bilder verwechselt worden.* Zauber aber oder Zauberin (denn dieß bedeuten die Wörter*), kann sowohl Demeter als Persephone genannt werden. Denn als der Hunger nach Wesen, den wir noch als das Innerste der ganzen Natur erkennen, ist Ceres die bewegende Kraft, durch deren unabläßiges Anziehen aus der ersten Unentschiedenheit alles wie durch Zauber zur Wirklichkeit oder Gestaltung gebracht wird. Aber die ursprünglich gestaltlose, darum in ihrem Tempel zu Rom als Vesta bildlos und in der reinen Flamme verehrte, Gottheit* nimmt in Persephone Gestalt an, und diese wird erst eigentlich der lebendige Zauber, gleichsam das Mittel und Gebild, an welches der unauflösliche Zauber geknüpft ist. Doch über diese Bedeutung kurz zu sein, erlauben uns die gelehrten Zusammenstellungen Creuzer's, die schwerlich einen andern obersten Verbindungsbegriff zulassen, als den der Zauberin, in dem ohnehin auch der der Künstlerin gedacht wird. Zauberin ist Persephone als erster Anfang zum künstigen leiblichen Dasein, als die, welche dies Kleid der Sterblichkeit webt und das Blendwerk der Sinne hervorbringt, überhaupt aber als erstes Glied der vom Tiefsten bis ins Höchste gehenden, Anfang und Ende verbindenden Kette.* Persephone heißt auch Maja, ein Name, der an Magia vielleicht mehr als nur erinnert.* Auch Artemis sei was Persephone, soll schon durch Aeschylus verlautet haben,* und auch Artemis heißt die Zauberin nach der natürlichen Ableitung.* Aber überhaupt allen weiblichen Gottheiten liegt der Begriff des Zaubers zu Grunde, und wie die Götterlehre der alten Deutschen, innerlicher, als geahndet wird, verwandt jener samothracischen, dem Othin die Freya zugesellt und beiden mächtige Zauberkräfte zuschreibt,* so sind Axiokersa und Axiokersos durch den gemeinschaftlichen Begriff des Zaubers vereint. Denn diese dritte Gestalt ist wirklich kein anderer, als der den Aegyptern Osiris, den Griechen Dionysos, den Deutschen Othin war.* Zwar der griechische Geschichtschreiber erklärt Ariokersos als Hades und alle Ausleger verstehen dieß eigentlich, von Pluto nämlich oder dem stygischen Jupiter. Aber Hades und Dionysos sind dieselben, lehrte schon Heraklit* und Osiris-Dionysos ist König über die Abgeschiednen,* wie unser deutscher Othin wohlthätiger Gott, erster Überbringer der fröhlichen Botschaft, zugleich Herr im Todtenreich ist. Diese Lehre, der freundliche Gott Dionysos sei der Hades, war unstreitig die beseligende Überzeugung, welche die Geheimlehren mitteilten. Nicht zu dem strengen unterirdischen Zeus abwärts, sondern zu dem milden Gott Osiris aufwärts gehen die Seelen, dieß war der verborgenste Sinn der Lehre, daß Dionysos der Hades sei. Deutlich erhellt dieß aus einer Stelle des Plutarch,* wie aus jenem, selbst auf römischen Grabmälern, so häufigen Nachruf: Lebe selig mit dem Osiris.* In diesem Zusammenhang war Persephone nicht des Hades, sondern als Kore und Libera des Dionysos Gattin.* Dabei blieb aber im öffentlichen Gebrauch der Hades wenigstens im Besitz des Namens, und so hieß nun Dionysos selbst Hades. Dionysos also oder Osiris ist Axiokersos, wie ja Axiokersa-Persephone auch Isis ist.* Was aber der Name auf's genaueste ausdrückt, ist schwer zu sagen, da wir ihn nicht in seiner ursprünglichen Gestalt kennen. Heißt diese Persönlichkeit Axiokersos bloß als Gemahl der Axiokersa? Oder ist er Zauberer in einem höheren Sinn, als der, welcher jenen Zauber der Persephone überwindet, ihre Strenge mildert, jenes Urfeuer (denn auch sie ist Feuer) dämpft und beschwört?* Dieß könnte auf jeden Fall nur durch Untersuchungen ausgemacht werden, die sich für diesen Vortrag nicht eignen. Aber welchen bestimmteren Sinn man außer dem allgemeinen dem Namen gebe, ein zauberischer Gott ist Dionysos, sei es daß man an die Schreckbilder denke, mit denen er die tyrrhenischen Schiffer strafte, oder an sein Amt als Eröffner der Natur, als alles mildernder Gott,* als der feuchte, der dem trocknenden Feuer wehrt.* So bilden also die drei ersten samothracischen Götter dieselbe Folge und Verkettung, in der wir auch sonst überall Demeter, Persephone und Dionysos finden. Es folgt die vierte Gestalt, Kasmilos genannt, gewöhnlicher Kadmilos, auch Camillus. Über diesen Namen nun sind alle Erklärer so weit einstimmig, daß er einen dienenden Gott bedeute; wie auch schon aus der Verrichtung des etruscisch-römischen Camillus erhellen würde. Aber welches Gottes oder welcher Götter Diener? Die nicht minder einstimmige Meinung ist, eben jenen ihm vorangehenden Göttern sei er als Diener beigesellt und zwar mit dem bestimmten Begriffe der Unterordnung.* Also der Ceres, der Proserpina, dem Bacchus untergeordnet wäre Kadwilos oder Hermes? Denn auch das ist unbezweifelt, daß er Hermes ist. Mercur Diener dieser Gottheiten, der sonst vorzugsweise Bote des höchsten der Götter, des Zeus, heißt? Zwar Er ruft Proserpina aus der Unterwelt zurück, aber nicht im Dienste der Ceres, nur auf Jupiters Geheiß.* Es findet sich zwar bei Varro der Ausdruck: Camillus, ein Gott, der großen Götter Diener.* Aber welcher Götter Diener, ist auch dadurch nicht bestimmt, vorausgesetzt selbst daß die kabirischen Gottheiten ohne Unterschied die großen genannt werden. Denn ihre Zahl wird sehr bestimmt auf sieben angegeben, denen ein achter beigesellt ist. Also Diener der großen Götter ist Camillus, nicht notwendig Diener jener drei ersten. Gesetzt aber, er diente zugleich den unteren und den oberen Göttern, so diente er jenen doch nur, sofern er der Mittler zwischen ihnen und den oberen, also selbst höher war denn sie, und dieses, gleichsam die leitende Verbindung zu sein zwischen den oberen und unteren Göttern, ist ja des Hermes eigentlichster Begriff.* Er würde also den obern und untern in sehr verschiedenem Sinne dienen, jenen als ein wirklicher Diener, als ein gehorchendes Werkzeug, diesen aber als ein wohlthätiges und über sie erhabenes Wesen. Sehr zu fürchten demnach ist, daß durch die zu leicht angenommene Meinung, den drei ersten Gottheiten sei Kadmilos als Diener zugesellt, das ganze samothracische System in ein falsches Licht gestellt worden. Entschieden bestätiget werden jene Zweifel durch die Namen selbst. Denn Kadmilos mit der griechischen Endigung, mit der ursprünglichen Kadmiel, heißt wörtlich: der, der vor dem Gott hergeht, und dieses wieder heißt nach morgenländischem Redegebrauch nichts anderes, als der Verkündiger, der Herold des kommenden Gottes. Er verhält sich in sofern zu dem unbekannten Gotte, wie sich zu dem alttestamentlichen Jehovah der sogenannte Engel des Angesichts verhält. Denn das Angesicht bedeutet dasselbe was Kadmi, nämlich das Vordere; der Engel des Angesichts also ist der Bote, der gleichsam das Vordere, das Vorausgehende der Gottheit ist. Nicht also der ihm Vorangehenden Götter, sondern eines kommenden, noch zukünftigen Gottes Diener ist Kadmilos. Auf einen nicht ihm vorangehenden, sondern ihm folgenden Gott deutet ebenso der andre, nicht minder urkundliche Name. Kasmilos heißt nicht überhaupt nur ein Ausleger der Gottheit, wie gewöhnlich erklärt wird, sondern bestimmt der von der Gottheit weissagt, sie voraus, die kommende verkündet.* Also durchaus auf einen zukünftigen Gott deuten die Namen, auf einen Gott, zu dem sich Kadmilos oder Hermes, notwendig also auch die ihm vorausgehenden Götter, nur als untergeordnete, nur als Diener, als Herolde, Verkündiger verhalten. Bewiesen wäre daher aus der Natur der einzelnen Persönlichkeiten selbst, daß weder die erste, Axieros, als Einheit und Quelle, der Götter und der Welt, vorangestellt, noch in der Kabirenlehre überhaupt ein Emanationssystem in ägyptischem Sinn enthalten ist. Weit entfernt sich in herabsteigender Ordnung zu folgen, folgen sich die Götter in aufsteigender; Axieros ist zwar das erste, aber nicht das oberste Wesen, Kadmilos unter den vieren das letzte, aber das höchste. Natürlich ist dem sinnigen Forscher die Neigung, alles Menschliche soviel möglich menschlich zu begreifen, natürlich also auch, in Erforschung der alten Götterlehre ein Mittel zu suchen, wodurch die Vielheit göttlicher Naturen sich mit dem menschlich notwendigen und unaustilgbaren Gedanken der Einheit Gottes vereinigen ließe. Aber die Vorstellung der verschiedenen Götter als bloßer Ausflüsse Einer in ihnen, wie in verschiedenen Strahlen, sich fortpflanzenden Urkraft, ist weder an sich volksgemäß und deutlich,* noch vermöge ihrer Unbestimmtheit und Gränzenlosigkeit verträglich sowohl mit der Bestimmtheit und Schärfe der Umrisse jeder einzelnen Gestalt als mit der geschlossenen Zahl dieser Gestalten. Allein auch mit menschlicher Denkweise läßt sie sich nicht wohl vereinen. Denn wer Einmal zum Gedanken Eines höchsten Wesens sich erhoben, von dem alle übrigen Naturen nur Ausströmungen sind, wird sich schwerlich entschließen, diesen Aussflüssen seine Verehrung, geschweige jene aufrichtige, gefühlte Frömmigkeit zuzuwenden, die wir an Manchen der Weisesten und Besten, die entweder in die Mysterien oder in die Lehren der Philosophen eingeweiht waren, an einem Xenophon z. B., wahrnehmen. Ganz anders verhält es sich, wenn die verschiedenen Götter nicht abwärts gehende, immer mehr sich abschwächende Aussflüsse einer höchsten nnd obersten Gottheit, wenn sie vielmehr Steigerungen einer untersten, zu Grunde liegenden Kraft sind, die sich endlich alle in Eine höchste Persönlichkeit verklären; alsdann nämlich sind sie wie Glieder einer vom Tiefsten in's Höchste anfsteigenden Kette, oder wie Sprossen einer Leiter, deren tiefere nicht übergehen darf, wer die höheren erklimmen will; dann, weil sie dem Menschen Mittler sind zwischen ihm und der höchsten Gottheit und nur Boten, Verkündiger, Herolde des
+Im Norden des aegäischen Meers erhebt sich die Samothracische Insul, von Anfang wie es scheint Samos genannt, darauf zum Unterschiede von der jonischen und wegen der Nähe Thraciens die thracische.* Erdkundige des Altertums schon vermuteten große Naturerschütterungen, die diese Gegenden noch zu Menschen-Zeiten betroffen. Es sei, daß durch bloße Anschwellung gehoben die Wasser des Euxinischen Meers erst die thracische Meerenge, dann den Hellespontus durchbrochen,* oder daß die Gewalt eines unterirdischen Feuers den Stand der Gewässer verändert*: die ältesten samothracischen Erzählungen, die durch aufgezeigte Denkmäler in Erinnerungen sich verwandelten, erhielten eine Kunde dieser Ereignisse und bis in jene Zeiten hinauf rückten sie die Verehrung und den Schutz der vaterländischen Götter.* Die Schrecken dieser Erinnerungen wurden erhöht durch die stets gegenwärtigen Schauer einer großen und mächtigen Natur; von Wäldern bedeckt bildete das fast unzugängliche Eiland* nur Ein zusammenhangendes Gebirg* von dessen höchstem Gipfel während des Kampfs um Troja Poseidon die ganze Bergkette des Ida, des Priamus Stadt und der Danaer Schiffe überschaut.* Dort ward in unbestimmbarer Vorzeit ein geheimnißvoller Götterdienst gestiftet und wenn die vielreiche jonische Samos des göttlich geachteten Mannes sich rühmt, der zuerst einen höhere Menschlichkeit beabsichtenden Bund ersonnen, so ist die unansehnliche Samos Traciens herrlicher in der Geschichte der Menschheit durch den Dienst der Kabiren, dem ältesten des ganzen Griechenlandes, der mit dem ersten Licht höheren und besseren Wissens in diesen Gegenden aufging, und der nicht eher als zugleich mit dem alten Glauben selbst untergegangen scheint. Aus den Wäldern Samothraciens erhielt Griechenland mit der geheimeren Göttergeschichte zuerst den Glauben an ein zukünftiges Leben. Besser und für das Leben wie für den Tod fröhlicher wurden nach allgemeiner Überzeugung die dort Eingeweihten.* Eine Zuflucht des Unglücks, ja des Verbrechens, so weit es durch Bekenntniß und Entsündigungen versöhnt werden mochte,* hielt, in Zeiten früherer und späterer Wildheit, samothracischer Gebrauch menschliches Gefühl aufrecht. Kein Wunder, daß der Name der heiligen Insul* mit allem verwebt wurde, was die ältesten Geschichten Ehrwürdiges und Ruhmvolles aufbewahrten. Jasion und Dardamus, Orpheus und die Argonauten, Herkules auch und Ulysses, sollen teils den geheimen Dienst dort geordnet, teils die Weihen empfangen haben.* Den Pythagoras nennt eine weder unwahrscheinliche noch unwichtige Nachricht unter denen, die Weisheit dort suchten und fanden.* Bei den kabirischen Orgien sahen sich zuerst der macedonische Philipp und, noch Kind, die Mutter des großen Alexander Olympias, vielleicht nicht ohne Einfluß auf das künftige Schicksal ihres Sohns.* Selbst der Römer Herrschaft schonte der Freiheit und alten, wie es scheint, theokratischen Verfassung Samothraces*; dort suchte seines Reiches beraubt der letzte macedonische König eine Freistatt, aus der ihn nicht Gewalt der schon übermüthig herrschenden Römer, sondern die Heiligkeit des Orts selbst und der am eigenen Feldherrn verübte Mord austrieb.* Dort hätte, wenn nicht durch Nordstürme zurückgetrieben, kurz vor seinem Ende noch der edle Germanicus die Weihen empfangen.* Schriftsteller aus späterer Kaiserzeit erwähnen der samothracischen Heiligtümer im Genuß fortdaurender Verehrung und wenn auch nicht in noch bestehenden heiligen Gebräuchen der Altertumsforscher Züge aus dem Bild des alten samothracischen Dienstes zu erblicken meinte,* so würde man andern Spuren zufolge seine Fortdauer bis zum Ende des zweiten ja wohl bis in's dritte Jahrhundert der christlichen Zeitrechnung verfolgen können.* Wenn einst, da mehr als je wieder die öffentliche Aufmerksamkeit dem alten Griechenlande sich zuwendet, dieß fast vergessene Eiland gleich andern durchforscht würde, vielleicht daß nicht Schätze der Kunst wie jener unvergleichliche Fund von Aegina, aber Denkmäler des ältesten Glaubens, wichtiger noch als jener für die ganze Geschichte unseres Geschlechts, die Ausbeute solcher Nachsuchungen würden.* Einer wiederholten Betrachtung schien dieser geheime Götterdienst zwar in jeder Hinsicht, aber zumal aus folgenden Gründen, nach so vielen Untersuchungen nicht unwürdig. In Dunkel gehüllt ist noch die Bedeutung der einzelnen Gottheiten. Zwar ihre griechische Namen nennt mehr als Ein Schriftsteller. Wir wissen, daß Demeter, Dionysos, Hermes, auch Zeus als Kabiren verehrt wurden. Aber dieß sind für uns bloße Namen, die den Zweifel übrig lassen, ob die samothracischen Götter jenen bekannten Gottheiten etwa nur ähnlich und vergleichbar, oder mit ihnen wirklich und dem Grundbegriff nach Eins gewesen. Eben so ungewiß ist, wodurch sich diese Götter als Gegenstände der Geheimlehre von denselben Göttern im öffentlichen Dienst und allgemeinen Glauben unterschieden. Und doch vermag nur diese vereinte Kenntniß gründlichen Aufschluß zu geben über den Sinn der samothracischen Lehre, über das eigentliche, ihr zu Grunde liegende, System. Eine einzige durch besonderes Glück gerettete Nachricht* scheint mit den wahren vom ersten Ursprung sich herschreibenden Namen zugleich die urkundliche Zeit- und Geburtsfolge der samothracischen Götter erhalten zu haben. Billig schien daher, diese allen Untersuchungen zum Grunde zu legen. So lautet die Stelle des griechischen Auslegers, dem wir die Erhaltung jener Nachricht verdanken. In Samothrace empfängt man die Weihen der Kabiren. Mnasras sagt, es sein deren drei der Zahl nach, Axieros, Axiokersa, Axiokersos. Axieros sei die Demeter, Axiokersa die Persephone, Axiokersas aber der Hades. Einige fügen auch einen vierten hinzu, Kaswilos genannt, welcher, wie Dionysodoros erzählt, Hermes ist.* Auf die Folge dieser Persönlichkeiten, auf die einer jeden zukommende Zahl legt diese Stelle ein deutliches Gewicht; zugleich da sie die ursprünglichen Namen enthält, gibt sie Anlaß zur Vergleichung und zu Erforschung des jeder Gottheit zu Grunde liegenden Begriffs. Denn gewagt, ja fast frevelhaft scheint es, die Namen von dem alten Geschichtschreiber zu nehmen, die Bedeutung aber aus anderen Quellen, ganz unabhängig, erforschen zu wollen. Aller Grund ist anzunehmen, daß der die verborgenen Namen gewußt, auch der Bedeutung im Allgemeinen nicht unkundig gewesen. Daß sie nicht hellenischem, daß sie, nach Griechen-Weise zu reden, barbarischen Ursprungs sind, ist anerkannt*; welcher Zunge, welchem Volk sie ursprünglich angehört, dieß ist eine von jeder geschichtlichen Voraussetzung unabhängige, einer rein sprachlichen Entscheidung fähige Frage. Dem fleißigen sein ganzes Leben in ägyptischen Forschungen vergrabenen Zoëga war natürlich, den Wurzeln dieser Namen in den zweifelhaften Überbleibseln altägyptischer Sprache nachzuspüren; wenn er aber durch seine Forschungen statt bestimmter, entschiedene Persönlichkeiten bezeichnender, Bedeutungen die allgemeinsten und unbestimmtesten zu Tage fördert, wenn Axieros den Allmächtigem, Kaswilos den vollkommen Weisen bedeuten soll,* so wird durch solche Erklärungen die Ableitung allein schon verdächtig. Ob ans indischen Sprachschätzen ein mehr genügender Aufschluß möglich ist, sei dahingestellt; wir glaubten einen andern von früheren Forschern betretenen Weg wieder einschlagen zu müssen. Welches Volks auch immer die Namen und die dadurch bezeichneten Götter ursprünglich sein mögen, eines vorzugsweise die Meere beschiffenden Volkes waren sie gewiß. Denn das ist der allgemeinste Glaube, daß jene Götter zumal den Seefahrenden hülfreich und heilbringend sein.* Der Ursprung wie die Beständigkeit dieses Glaubens, läßt schwerlich eine andere Erklärung zu, als daß sie zuerst als die Götter eines zur See unternehmenden also begünstigt scheinenden Volkes bekannt wurden. Wie natürlich auch, daß fern herschiffende Fremdlinge in jenen noch jetzt nicht ungefährlichen Meeren, auf dessen Insuln außer den Geschäften des Handels Unwetter und Stürme sie oft lange Zeit zurückhalten mußten, die heimischen Götter wieder zu finden und zu verehren wünschten, daß also dieselben Schiffe, welche Räuchwerk, Purpur oder Elfenbein dahin führten, auch ihre Götter und Heiligtümer auf die griechischen Küsten und Eilande verpflanzten.* Ein solches Volk in jenen Urzeiten kennen wir nur an den Phöniciern, deren lange daurendes Wirken und Walten, ja deren Ansiedelungen in jenen Gegenden geschichtlich nicht zu läugnen sind.* Dazu kommt die Versicherung des Herodot, den Schutzgöttern der Phönicier, deren Zeichen sie an den Vorderteilen der Schiffe führten, sei'n der Gestalt nach ähnlich gewesen die ägyptischen Kabiren.* Hat demnach Samothrace seine Götter, mittelbar oder unmittelbar, von Phönicischen Schiffern erhalten, und waren des Volks, deß die Götter, nach aller Wahrscheinlichkeit, auch die Namen, so ist der mächtigste Grund vorhanden, der Bedeutung jener Namen in phönicischen, oder was bei der unbestreitbaren Einerleiheit beider Sprachen völlig gleichgültig ist, in hebräischen Sprachwurzeln nachzuspüren. Denn daß Götternamen des Morgenlandes, wo selbst menschliche Eigennamen, bedeutend sind, bedarf des Beweises nicht und kaum der Erinnerung. Wir betreten also jenen gefährlichen Weg der Sprachforschung, der sich mit Untersuchung der Herkunst und Abstammung von Namen oder Wörtern abgibt, nicht unwissend, was von dessen Schwierigkeit und Undankbarkeit vorsichtige Kenner zu äußern pflegen, nicht unkundig des von minder Bedächtlichen im Allgemeinen darüber ausgesprochenen Verdammungsurteils. Aber jede Forschung ist löblich an sich, den Unterschied macht nur die Art und das Verfahren. Mochte in einer Zeit, da leicht Jeder jeder Sache sich gewachsen glaubte, eine neue Wuth von Sprachableitungen alles aus allem zu machen und auf wahn-witzige Art auch in der alten Götterfabel alles mit allem zu vermischen bemüht sein: die Untersuchung der Herkunft und Abstammung der Wörter nicht blindlings, sondern kunstmäßig und nach den auch ihr zukommenden Regeln getrieben, wird immer der edelste Teil der Sprachforschung bleiben.* Das also den drei ersten Gottheiten gemeinschaftlich vorgesetzte Wort können wir als nicht bezeichnend für die besondere Natur einer jeden mit Schweigen übergehen.* Nach der wörtlichsten Übertragung aber kann der erste Name, Axieros, in phönicischer Mundart nicht wohl etwas anderes bedeuten, als den Hunger, die Armuth, und was daraus folgt, das Schmachten, die Sucht*; eine Erklärung, die auf den ersten Blick wunderlich scheinen mag, aber durch tiefere Betrachtung einleuchtet. Wir wollen nicht mit dem Allgemeinen uns begnügen, daß ein schlechthin erstes Wesen, wenn auch an sich überschwengliche Fülle, doch sofern es nichts hat, dem es sich mitteilen kann, als äußerste Armuth als höchste Bedürftigkeit sich selber erscheinen muß. Nicht darauf, daß im Begriff jedes Anfangs der Begriff eines Mangels liegt.* Wir eilen an etwas Bestimmtes zu erinnern, an jene Platonische Penia, die mit dem Überfluß sich vermählend Mutter des Eros wird. Zwar nach Griechen-Art, welche die ältesten Götter im Reiche des Zeus wiedergeboren werden läßt, erscheint diese Penia beim Gastmahl der anderen Götter. Aber es läßt sich nicht zweifeln, daß Plato hier wie anderwärts nur eine schon vorhandene Fabel frei behandelt, und der erste Stoff seiner Erzählung ein Bruchstück ist jener uralten Lehre, nach welcher Eros der erste der Götter aus dem Weltei hervorgeht, vor ihm aber nur die das Ei gebärende Nacht ist. Denn die Nacht sei das Aelteste in der ganzen Natur der Dinge, war Lehre aller Völker, die die Zeiten nach Nächten zählen,* obwohl es Entstellung ist, wenn man dieß erste Wesen zugleich als das oberste betrachtet. Aber was ist das Wesen der Nacht, wenn nicht Mangel, Bedürftigkeit und Sehnsucht? denn diese Nacht ist nicht Finsterniß, nicht das dem Licht feindliche, sondern das des Lichts harrende Wesen, sie ist die sehnsüchtige, zu empfangen begierige Nacht. Ein anderes Bild jener ersten Natur, deren ganzes Wesen Begehren und Sucht ist, schien das verzehrende Feuer, das, selbst gewissermaßen Nichts, nur ein alles in sich ziehender Hunger nach Wesen ist. Daher der uralte Lehrsatz: Feuer sei das Innerste, also auch das Älteste, durch Dämpfung des Feuers habe sich erst alles zur Welt angelassen. Daher, daß auch Hestia als das älteste der Wesen verehrt worden und die Begriffe der Ceres und Proserpina, der ältesten Gottheiten, mit dem der Hestia vermengt worden.* Aber wie schon die Weiblichkeit dieses vielnamigen Wesens, wie dunkler oder deutlicher alle Namen dieser ersten Natur auf die Begriffe der Sehnsucht und des schmachtenden Verlangens hindeuten; so zumal gehet das Wesen der Ceres, für welche der alte Geschichtschreiber die erste samothracische Gottheit erklärt, ganz auf in Sucht. Ich bin Deo, antwortet sie, zuerst sich kundgebend, den Töchtern des Celeus,* d. h. die Sehnsuchtkranke, die Schmachtende, eine Bedeutung, die der Zusammenhang fordern würde, wenn sie auch nicht aus Sprachforschung sich rechtfertigen ließe.* Wie Isis im Suchen des verlorenen Gottes, wird Ceres im Suchen der verlorenen Tochter ganz die Suchende. Doch liegt der erste Grund des Begriffes tiefer. Alles Unterste, unter dem nichts mehr ist, kann nur Sucht sein, Wesen, das nicht sowohl ist, als nur trachtet zu sein. Darum ist nach ägyptischer Ansicht Ceres Herrscherin der Todten,* deren Zustand allgemein als ein Zustand von Unvermögenheit und kraftlosem Streben nach Wirklichkeit gedacht wird. Die Unterwelt selbst heißt der geizige, der habsüchtige Dis oder Amenthes. Von Alters her wurden die Abgeschiedene von den Athenern Demetrische* genannt, weil man sich die vom Leib und der äußeren Welt Getrennte in einen Zustand lauterer Sucht versetzt dachte, aus demselben Grund also, warum die Manen in hebräischer Sprache die sich sehnenden, die verlangenden hießen.* Damit aber nicht jemand die Worte des weniger tiefsinnigen als witzigen römischen Dichters auch hieher anwende: Nimmer ja gehen Hunger zusammen und Ceres,* genügt zu erinnern, daß wir nicht bloß von einer fruchtbringenden, sondern auch von einer Ceres-Erinnis wissen, und wie die Erinnien überhaupt zu den älteren Gottheiten gehören,* so ist eben die fruchtbare Ceres die ältere; denn der gestillten Sucht muß die brennende vorausgehen, überschwenglicher Fülle der Fruchtbarkeit die größte Empfänglichkeit also verzehrender Hunger. Ihre volle Bedeutung erhält dadurch erst die Strafe des Erisichthon, den die zürnende Ceres mit unersättlichem Heißhunger* heimsucht. Denn es ist auch sonst dem tiefer Forschenden nicht fremd, daß die Götter durch Verstoßung in eben den Zustand strafen, der durch ihre Gunst überwunden worden. Darum leiden die Uneingeweihten in der Unterwelt die besondere Strafe, daß sie ein unfüllbares Gefäß rastlos zu füllen sich bestreben.* Diese Nachweisungen könnten hinlänglich scheinen zur Begründung der gegebenen Erklärung. Doch glauben wir, sie der Gewißheit näher bringen zu können. Es sind uns verschiedene Bruchstücke phönicischer Kosmogonieen erhalten. Eine derselben setzt über alle Götter die Zeit, die, weil das gemeinschaftlich Befassende und gleichsam Tragende aller Zahlen, selber nicht zählt, noch für eine Zahl gilt; ihr zunächst aber, also als erste Zahl, nennt sie die schmachtende Sehnsucht.* Ein anderes Bruchstück phönicischer Kosmogonie, dem das Zeichen hoher Altertümlichkeit an der Stirne geschrieben steht, drückt sich so aus: Zuerst war der Hauch einer finstern Luft und ein trübes Chaos, dieß alles für sich gränzenlos. Als aber der Geist von der Liebe gegen die eigenen Anfänge entbrannte und eine Zusammenziehung entstand, wurde dieses Band Sehnsucht genannt, und dieß war der Beginn der Erschaffung aller Dinge.* Hier wird der Anfang in ein Entbrennen gegen sich selbst, ein sich selber Suchen gesetzt, das hieraus entstehende Band ist wieder, nur die gleichsam verkörperte, Sehnsucht und der erste Anlaß zu Erschaffung aller Dinge. Einheimisch in phönicischen Kosmogonieen war also die Vorstellung der Sehnsucht als Anfangs, als ersten Grundes zur Schöpfung. Aber war sie darum auch samothracisch? Hierauf antwortet eine Stelle des Plinius, der unter den Werken des Skopas die Venus, den Pothos, d. h. die Sehnsucht und den Phaëton nennt, Gottheiten (setzt er hinzu), die in Samothrace mit den heiligsten Gebräuchen verehrt werden.* Gewiß also ist, daß unter den samothracischen Gottheiten eine war, mit der der Begriff: Sehnsucht, verbunden wurde. Wir kennen mit ziemlicher Zuverläßigkeit alle samothracischen Gottheiten, aber es ist keine, welcher schmachtende Sehnsucht so eigen, so ganz angemessen wäre, als der, welche der alte Geschichtschreiber für Demeter erklärt, der also, welche Axieros genannt wurde.* Hiedurch glauben wir die gegebne Erklärung zu dem in solchen Untersuchungen möglichen Grad der Gewißheit gebracht. Was die folgenden Namen der zweiten und dritten Persönlichkeiten betrifft, Axiokersa und Axiokersos; so möchte man sich zunächst darüber wundern, daß keiner der bisherigen Forscher in ihnen die Spur der uralten Wurzel des Ceres-Namens erblick hat, da doch in diesem Zusammenhang alles aus Cerealischen Dienst und Lehre hindeutet. Wirklich ist Kersa nur nach einer andern Mundart dasselbe, was Ceres (in der alten Aussprache Keres).* Und da, nach einmal erwiesener Bedeutung der Axieros, daran, daß Axiokersa die Persephone ist, nicht zu zweifeln steht, so dient dieser Name nur als neuer Beleg des auch sonsther bekannten, daß Proserpina nur Ceres, die Tochter nur die Mutter ist in einer andern Gestalt, und auch wohl ihre Namen, wie oft ihre Bilder verwechselt worden.* Zauber aber oder Zauberin (denn dieß bedeuten die Wörter*), kann sowohl Demeter als Persephone genannt werden. Denn als der Hunger nach Wesen, den wir noch als das Innerste der ganzen Natur erkennen, ist Ceres die bewegende Kraft, durch deren unabläßiges Anziehen aus der ersten Unentschiedenheit alles wie durch Zauber zur Wirklichkeit oder Gestaltung gebracht wird. Aber die ursprünglich gestaltlose, darum in ihrem Tempel zu Rom als Vesta bildlos und in der reinen Flamme verehrte, Gottheit* nimmt in Persephone Gestalt an, und diese wird erst eigentlich der lebendige Zauber, gleichsam das Mittel und Gebild, an welches der unauflösliche Zauber geknüpft ist. Doch über diese Bedeutung kurz zu sein, erlauben uns die gelehrten Zusammenstellungen Creuzer's, die schwerlich einen andern obersten Verbindungsbegriff zulassen, als den der Zauberin, in dem ohnehin auch der der Künstlerin gedacht wird. Zauberin ist Persephone als erster Anfang zum künstigen leiblichen Dasein, als die, welche dies Kleid der Sterblichkeit webt und das Blendwerk der Sinne hervorbringt, überhaupt aber als erstes Glied der vom Tiefsten bis ins Höchste gehenden, Anfang und Ende verbindenden Kette.* Persephone heißt auch Maja, ein Name, der an Magia vielleicht mehr als nur erinnert.* Auch Artemis sei was Persephone, soll schon durch Aeschylus verlautet haben,* und auch Artemis heißt die Zauberin nach der natürlichen Ableitung.* Aber überhaupt allen weiblichen Gottheiten liegt der Begriff des Zaubers zu Grunde, und wie die Götterlehre der alten Deutschen, innerlicher, als geahndet wird, verwandt jener samothracischen, dem Othin die Freya zugesellt und beiden mächtige Zauberkräfte zuschreibt,* so sind Axiokersa und Axiokersos durch den gemeinschaftlichen Begriff des Zaubers vereint. Denn diese dritte Gestalt ist wirklich kein anderer, als der den Aegyptern Osiris, den Griechen Dionysos, den Deutschen Othin war.* Zwar der griechische Geschichtschreiber erklärt Ariokersos als Hades und alle Ausleger verstehen dieß eigentlich, von Pluto nämlich oder dem stygischen Jupiter. Aber Hades und Dionysos sind dieselben, lehrte schon Heraklit* und Osiris-Dionysos ist König über die Abgeschiednen,* wie unser deutscher Othin wohlthätiger Gott, erster Überbringer der fröhlichen Botschaft, zugleich Herr im Todtenreich ist. Diese Lehre, der freundliche Gott Dionysos sei der Hades, war unstreitig die beseligende Überzeugung, welche die Geheimlehren mitteilten. Nicht zu dem strengen unterirdischen Zeus abwärts, sondern zu dem milden Gott Osiris aufwärts gehen die Seelen, dieß war der verborgenste Sinn der Lehre, daß Dionysos der Hades sei. Deutlich erhellt dieß aus einer Stelle des Plutarch,* wie aus jenem, selbst auf römischen Grabmälern, so häufigen Nachruf: Lebe selig mit dem Osiris.* In diesem Zusammenhang war Persephone nicht des Hades, sondern als Kore und Libera des Dionysos Gattin.* Dabei blieb aber im öffentlichen Gebrauch der Hades wenigstens im Besitz des Namens, und so hieß nun Dionysos selbst Hades. Dionysos also oder Osiris ist Axiokersos, wie ja Axiokersa-Persephone auch Isis ist.* Was aber der Name auf's genaueste ausdrückt, ist schwer zu sagen, da wir ihn nicht in seiner ursprünglichen Gestalt kennen. Heißt diese Persönlichkeit Axiokersos bloß als Gemahl der Axiokersa? Oder ist er Zauberer in einem höheren Sinn, als der, welcher jenen Zauber der Persephone überwindet, ihre Strenge mildert, jenes Urfeuer (denn auch sie ist Feuer) dämpft und beschwört?* Dieß könnte auf jeden Fall nur durch Untersuchungen ausgemacht werden, die sich für diesen Vortrag nicht eignen. Aber welchen bestimmteren Sinn man außer dem allgemeinen dem Namen gebe, ein zauberischer Gott ist Dionysos, sei es daß man an die Schreckbilder denke, mit denen er die tyrrhenischen Schiffer strafte, oder an sein Amt als Eröffner der Natur, als alles mildernder Gott,* als der feuchte, der dem trocknenden Feuer wehrt.* So bilden also die drei ersten samothracischen Götter dieselbe Folge und Verkettung, in der wir auch sonst überall Demeter, Persephone und Dionysos finden. Es folgt die vierte Gestalt, Kasmilos genannt, gewöhnlicher Kadmilos, auch Camillus. Über diesen Namen nun sind alle Erklärer so weit einstimmig, daß er einen dienenden Gott bedeute; wie auch schon aus der Verrichtung des etruscisch-römischen Camillus erhellen würde. Aber welches Gottes oder welcher Götter Diener? Die nicht minder einstimmige Meinung ist, eben jenen ihm vorangehenden Göttern sei er als Diener beigesellt und zwar mit dem bestimmten Begriffe der Unterordnung.* Also der Ceres, der Proserpina, dem Bacchus untergeordnet wäre Kadwilos oder Hermes? Denn auch das ist unbezweifelt, daß er Hermes ist. Mercur Diener dieser Gottheiten, der sonst vorzugsweise Bote des höchsten der Götter, des Zeus, heißt? Zwar Er ruft Proserpina aus der Unterwelt zurück, aber nicht im Dienste der Ceres, nur auf Jupiters Geheiß.* Es findet sich zwar bei Varro der Ausdruck: Camillus, ein Gott, der großen Götter Diener.* Aber welcher Götter Diener, ist auch dadurch nicht bestimmt, vorausgesetzt selbst daß die kabirischen Gottheiten ohne Unterschied die großen genannt werden. Denn ihre Zahl wird sehr bestimmt auf sieben angegeben, denen ein achter beigesellt ist. Also Diener der großen Götter ist Camillus, nicht notwendig Diener jener drei ersten. Gesetzt aber, er diente zugleich den unteren und den oberen Göttern, so diente er jenen doch nur, sofern er der Mittler zwischen ihnen und den oberen, also selbst höher war denn sie, und dieses, gleichsam die leitende Verbindung zu sein zwischen den oberen und unteren Göttern, ist ja des Hermes eigentlichster Begriff.* Er würde also den obern und untern in sehr verschiedenem Sinne dienen, jenen als ein wirklicher Diener, als ein gehorchendes Werkzeug, diesen aber als ein wohlthätiges und über sie erhabenes Wesen. Sehr zu fürchten demnach ist, daß durch die zu leicht angenommene Meinung, den drei ersten Gottheiten sei Kadmilos als Diener zugesellt, das ganze samothracische System in ein falsches Licht gestellt worden. Entschieden bestätiget werden jene Zweifel durch die Namen selbst. Denn Kadmilos mit der griechischen Endigung, mit der ursprünglichen Kadmiel, heißt wörtlich: der, der vor dem Gott hergeht, und dieses wieder heißt nach morgenländischem Redegebrauch nichts anderes, als der Verkündiger, der Herold des kommenden Gottes. Er verhält sich in sofern zu dem unbekannten Gotte, wie sich zu dem alttestamentlichen Jehovah der sogenannte Engel des Angesichts verhält. Denn das Angesicht bedeutet dasselbe was Kadmi, nämlich das Vordere; der Engel des Angesichts also ist der Bote, der gleichsam das Vordere, das Vorausgehende der Gottheit ist. Nicht also der ihm Vorangehenden Götter, sondern eines kommenden, noch zukünftigen Gottes Diener ist Kadmilos. Auf einen nicht ihm vorangehenden, sondern ihm folgenden Gott deutet ebenso der andre, nicht minder urkundliche Name. Kasmilos heißt nicht überhaupt nur ein Ausleger der Gottheit, wie gewöhnlich erklärt wird, sondern bestimmt der von der Gottheit weissagt, sie voraus, die kommende verkündet.* Also durchaus auf einen zukünftigen Gott deuten die Namen, auf einen Gott, zu dem sich Kadmilos oder Hermes, notwendig also auch die ihm vorausgehenden Götter, nur als untergeordnete, nur als Diener, als Herolde, Verkündiger verhalten. Bewiesen wäre daher aus der Natur der einzelnen Persönlichkeiten selbst, daß weder die erste, Axieros, als Einheit und Quelle, der Götter und der Welt, vorangestellt, noch in der Kabirenlehre überhaupt ein Emanationssystem in ägyptischem Sinn enthalten ist. Weit entfernt sich in herabsteigender Ordnung zu folgen, folgen sich die Götter in aufsteigender; Axieros ist zwar das erste, aber nicht das oberste Wesen, Kadmilos unter den vieren das letzte, aber das höchste. Natürlich ist dem sinnigen Forscher die Neigung, alles Menschliche soviel möglich menschlich zu begreifen, natürlich also auch, in Erforschung der alten Götterlehre ein Mittel zu suchen, wodurch die Vielheit göttlicher Naturen sich mit dem menschlich notwendigen und unaustilgbaren Gedanken der Einheit Gottes vereinigen ließe. Aber die Vorstellung der verschiedenen Götter als bloßer Ausflüsse Einer in ihnen, wie in verschiedenen Strahlen, sich fortpflanzenden Urkraft, ist weder an sich volksgemäß und deutlich,* noch vermöge ihrer Unbestimmtheit und Gränzenlosigkeit verträglich sowohl mit der Bestimmtheit und Schärfe der Umrisse jeder einzelnen Gestalt als mit der geschlossenen Zahl dieser Gestalten. Allein auch mit menschlicher Denkweise läßt sie sich nicht wohl vereinen. Denn wer Einmal zum Gedanken Eines höchsten Wesens sich erhoben, von dem alle übrigen Naturen nur Ausströmungen sind, wird sich schwerlich entschließen, diesen Aussflüssen seine Verehrung, geschweige jene aufrichtige, gefühlte Frömmigkeit zuzuwenden, die wir an Manchen der Weisesten und Besten, die entweder in die Mysterien oder in die Lehren der Philosophen eingeweiht waren, an einem Xenophon z. B., wahrnehmen. Ganz anders verhält es sich, wenn die verschiedenen Götter nicht abwärts gehende, immer mehr sich abschwächende Aussflüsse einer höchsten nnd obersten Gottheit, wenn sie vielmehr Steigerungen einer untersten, zu Grunde liegenden Kraft sind, die sich endlich alle in Eine höchste Persönlichkeit verklären; alsdann nämlich sind sie wie Glieder einer vom Tiefsten in's Höchste anfsteigenden Kette, oder wie Sprossen einer Leiter, deren tiefere nicht übergehen darf, wer die höheren erklimmen will; dann, weil sie dem Menschen Mittler sind zwischen ihm und der höchsten Gottheit und nur Boten, Verkündiger, Herolde des kommenden Gottes, gewinnt die Verehrung derselben einen Schein, der sich auch mit der besseren Menschheit verträgt und der allein erklärt, wie die den vielen Göttern erzeigte Verehrung so tiefe und fast unausreißbare Wurzeln schlagen, so lange sich erhalten konnte. Weder überhaupt zur Erklärung alter Götterlehre, noch zur Erklärung der samothracischen insbesondere geeignet scheint also die Vorstellung der Emanation. Hier scheitert sie an dem recht verstandenen Begriffe des Kadmilos. Eine von unten wie Zahlen aufsteigende Reihe bilden die vier uns urkundlich bekannten samothracischen Gottheiten. Kadmilos, nicht den drei andern untergeordnet, steht vielmehr über ihnen. Diese Einsicht verwandelt auf einmal die ganze Folge in eine lebendig fortschreitende, und öffnet uns die Aussicht in eine weitere Entwickelung der bis zur vierten Zahl bekannten Reihe. Die nächste Frage ist unstreitig, welcher Natur jener El, jener Gott sei, dessen Verkündiger und Diener zwar alle vorangehende Gottheiten, zunächst aber und unmittelbar Kadmilos ist? Unstreitig beginnt mit diesem Gott eine neue Reihe von Offenbarungen, durch die sich die Folge der Persönlichkeiten bis in die Sieben- und Achtzahl fortsetzt. Doch die vollständige Entwickelung dieser Reihe, die noch andere Mittel fodert als in den samothracischen Überlieferungen für sich liegen, ist nicht unser Zweck. Es genügt uns, so weit dieß möglich ist, über die Natur der dem Kadmilos folgenden Gottheit einigen Aufschluß zu geben. Zunächst also ist klar, daß jene ersten Gottheiten diejenigen Kräfte sind, durch deren Wirken und Walten vorzugsweise das Weltganze besteht; klar also, daß sie weltliche, kosmische Gottheiten sind. Denn sie heißen allesammt Hephäste,* in keinem andern Sinn, als Alexander der Große sagte, auch Parmenio sei Alexander. Hephästos selbst ist in keiner Kabirenreihe, so wenig als sein Name unter denen der fieben Planeten oder in dem Kreis der Wochentage vorkommt, dem Schlüssel, wie ich einst zu zeigen hoffe, aller Göttersysteme. Sie alle zusammen, diese vorangehenden oder wie wir auch sagen können, dienenden Gottheiten, sind Hephästos.* Die Schöpfung des Hephästos ist die Welt der Notwendigkeit. Er ist es, der in strengem Zwange das All hält.* Er aber ist es auch, der den Göttern, den höheren unstreitig als er selbst, die innerweltlichen Sitze bildet.* Eben dieses tun also jene dienenden Gottheiten, die sich auch dadurch wieder als die, nur die Epiphanie, die Offenbarung der höheren Götter vorbereitenden darstellen. Man könnte von ihnen sagen, sie sei'n nicht sowohl göttliche, als gottwirkend, theurgische Naturen, und als theurgisch stellt sich je mehr und mehr die ganze Verkettung dar. Wenn also jene vorangehenden Persönlichkeiten weltliche Gottheiten sind, so ist der Gott, zu dem sie die Führer und Leiter sind, und dem unmittelbar Kadmilos dient, der überweltliche Gott, der Gott, der sie beherrscht und dadurch Herr der Welt ist, der Demiurg oder im höchsten Sinne Zeus.* So hieß in Eleusis der, welcher den Hermes oder Kadmilos vorstellte, der heilige Herold, aber der höchste Priester, welcher den höchsten der Götter vorstellte, war das Ebenbild des Welterbauers und als solcher geschmückt.* Der etruscisch römische Camillus war keineswegs ein jedem Priester ohne Unterschied dienender Gehülfe, er war, was bisher nicht beachtet worden, der ausdrücklichen Erklärung alter Schriftsteller zufolge, der dem Priester des Jupiters dienende Knabe.* Da also dieser den Zeus selbst vorstellte, so war der Camillus zu ihm in demselben Verhältniß, in welchem nach der gegebenen Ansicht der kabirische Kadmilos zum höchsten Gott ist. Die aufsteigende Reihe verhält sich daher jetzt so: Das tiefste Ceres, deren Wesen Hunger und Sucht, und die der erste entfernteste Anfang alles wirklichen, offenbaren Seins ist. Die nächste Proserpina, Wesen oder Grundanfang der ganzen sichtbaren Natur; dann Dionysos, Herr der Geisterwelt. Über Natur und Geisterwelt das die beiden sowohl unter sich als mit dem Überweltlichen vermittelnde, Kadmilos oder Hermes.* Über diesen allen der gegen die Welt freie Gott, der Demiurg.* Also ein von untergeordneten Persönlichkeiten oder Naturgottheiten zu einer höchsten sie alle beherrschenden Persönlichkeit, zu einem überweltlichen Gott, aufsteigendes System war die kabirische Lehre.* Noch weit entfernt aber ist diese Darstellung von jener andern Behauptung, die zuerst Warburton ausgeschmückt, nach ihm auch deutsche Gelehrte annehmlich gefunden, welcher zufolge das eigentliche Geheimniß aller Mysterien des Altertums die Lehre von der Einheit Gottes war, und zwar in jenem verneinenden alle Vielheit ausschließenden Sinne, den die jetzige Zeit mit diesem Begriffe verbindet. Undenkbar wäre schon an sich ein solcher Widerspruch zwischen dem öffentlichen Götterdienst und der Geheimlehre. Er konnte, wie Sainte-Croix bemerkt, nicht kurze Zeit, geschweige an zweitausend Jahre dauren, ohne die Altäre umzustoßen, ja ohne die Ruhe der bürgerlichen Gesellschaft zu erschüttern. Mit der einen Hand erschaffen und mit der andern vernichten, öffentlich täuschen und insgeheim aufklären, den Götterdienst durch Gesetze befestigen, die Frevel dagegen mit Ernst bestrafen, heimlich den Unglauben nähren und aufmuntern, welche Gesetzgebung!* Ein Gedanke, der einer in so manchen Verhältnissen an Betrug gewöhnten Zeit vielleicht zusagen konnte, den aber das grade, gesunde, kräftige Alterthum wie mit Einer Stimme verwirft.* Es ist vielmehr alle Wahrscheinlichkeit, daß in den Geheimnissen ebendasselbe, was in dem öffentlichen Dienst, aber nur nach seinen verborgenen Beziehungen dargestellt wurde, und daß jene von diesem sich nicht mehr unterschieden, als etwa die esoterischen oder akroamatischen Vorträge der Philosophen von den exoterischen. Vollends aber jener, nicht altnicht neutestamentlich, nur etwa mahommedanisch zu nennende Monotheismus, dessen Begriff doch eigentlich immer jenen Behauptungen zu Grund gelegt wird, widerstrebt dem ganzen Alterthum und der schöneren Menschlichkeit, die sich ganz in dem Ausspruche des Heraklit spiegelt, dem auch Plato Beifall gegeben: Das Eine weise Wesen will nicht das alleinige genannt sein, den Namen Zeus will es!* Eine andere Folge möchte man versucht sein, jener obwohl flüchtigen Vergleichung zu geben zwischen samothracischen und alttestamentlichen Vorstellungen, die weiter fortgesetzt noch auf tiefere Übereinstimmungen leiten würde. Man könnte darin eine neue Bestätigung sehen wollen der älteren von Gerhard Vossius, Bochart und anderen ehrenwerten Forschern gefaßten Ansicht. Nach derselben ist die gesammte Götterlehre des Heidentums nur Verunstaltung der alttestamentlichen Geschichte und der an das Volk Gottes ergangenen Offenbarung.* Diese also wird für ein Äußerstes und Letztes genommen, über das keine geschichtliche Erklärung hinausgehen kann. Wie aber, wenn diese Annahme selbst nur willkührlich wäre? Wenn sich schon in griechischer Götterlehre (von indischer und anderer morgenländischer nicht zu reden) Trümmer einer Erkenntniß, ja eines wissenschaftlichen Systems zeigten, das weit über den Umkreis hinausginge, den die älteste durch schriftliche Denkmäler bekannte Offenbarung gezogen hat?* Wenn überhaupt diese nicht sowohl einen neuen Strom von Erkenntniß eröffnet hätte, als den durch eine frühere schon eröffneten nur in ein engeres, aber eben darum sicherer fortleitendes Beet eingeschlossen? Wenn sie, nach einmal eingetretener Verderbniß und unaufhaltsamer Entartung in Vielgötterei, mit weisester Einschränkung, von jenem Ursystem nur einen Teil, aber doch diejenigen Züge erhalten hätte, die wieder ins große und umfassende Ganze leiten können? Diesem jedoch sei wie ihm wolle, so beweisen jene Vergleichungen wenigstens, daß der griechische Götterglaube auf höhere Quellen als auf ägyptische und indische Vorstellungen, zurückzuführen ist. Ja wenn die Frage entstünde, welche von den verschiednen Götterlehren, ob die ägyptische und indische, ob die griechische näher der Urquelle geschöpft sei; der unbefangene Forscher würde kaum anstehen, für die letzte zu entscheiden. In der griechischen Fabel, jener Göttergeschichte, wie sie vorzüglich Homer den Griechen gedichtet, ist es eine unschuldige, fast kindische Phantasie, die, nur gleichsam versuchsweise, spielend und mit dem Vorbehalt es wiederherzustellen, das Band auflöst, wodurch die vielen Götter Ein Gott sind; im ägyptischen und indischen System ist ein ernstlicher Mißverstand, ja ein dämonisches nicht zu verkennen, ein nur mit Absicht wirkender Geist des Irrtums, den der Mißverstand in's Ungeheure, ja in's Gräuelhafte auswirkt. Hatte jenes Naturvolk der Pelasger, aus dem alle griechische Kraft und Herrlichkeit aufgegangen scheint,* die Grundbegriffe schon getrübt, nicht in natürlicher Unschuld und Frische erhalten, nimmer, so hoch wir den lebendigen Sinn der Griechen anschlagen mögen, konnten diese Vorstellungen in so lautere Schönheit sich entfalten, nimmer so treu, so arglos, so unbefangen mitten im Spiel, jene tieferen Verbindungen bewahren, deren geheimer Zauber uns auch dann noch trifft, wenn wir die Göttergestalten in ihrer völligen dichterischen und künstlerischen Unabhängigkeit vor uns walten lassen. Wiederhergestellt wurde jenes im Spiel der Dichtung gelöste Band im Ernst der Geheimlehren. Geschichtlich unzweifelhaft ist, daß auch diese den Griechen vom Ausland oder von den Barbaren gekommen. Aber warum eben aus Aegypten? Weil Herodot von den dodonäischen Priesterinnen gehört, aus Aegypten haben die Pelasger zuerst die Namen der Gottheiten erfahren?* Aber derselbe Herodot gibt kurz zuvor eben diese Herleitung der griechischen Götternamen aus Aegypten nur für seine Meinung,* die um so weniger Entscheidendes haben kann, da ihr so wesentliche Mittel der Beurteilung fehlten und Urkunden, die vor uns aufgeschlagen liegen.* Welche ganz andere Welt ging dem Vater der Geschichte auf, wenn er die althebräischen Denkmäler kannte, ihm, dessen Aufmerksamkeit nicht entgangen war, daß die ersten bacchischen Orgien Griechenlands von jenen Phöniciern herkommen, die sich mit dem Tyrier Kadmus in Bäotien niedergelassen.* Über die Geheimnisse Samothrace's äußert er sich entschieden, die Insul habe sie von den Pelasgern empfangen, welche zuerst dort, ehe mit den Athenern zusammen gewohnt.* Der einzige, doch nur scheinbare Grund, der einige Forscher bewegen konnte, die erste Quelle des Kabiren-Dienstes in Aegypten zu suchen,* ist eine besondere Erzählung des jonischen Geschichtschreibers. Zu Memphis sei Kambyses in das Heiligthum des Hephästos gegangen und habe des Bildes nicht wenig gespottet. Denn es sei, wie die Phönicischen Patäken, die Nachbildung eines Pygmäen. Auch in das Heiligthum der Kabiren, in das niemanden als dem Priester zu gehen verstattet gewesen, sei der Frevler gedrungen und habe unter vielem Gelächter ihre Bilder verbrannt, denn auch sie seien den Bildern des Hephästos ähnlich.* Die Vergleichung der Hephästos- und der Kabiren-Bilder mit den phönicischen Schutzgöttern würde jedoch die umgekehrte Ableitung der Kabiren Aegyptens von den Zwerggöttern Phöniciens eben so gut verstatten, da dieses Land nach eben so unverwerflichen Zeugnissen zu den ältesten Sitzen der Kabiren gehört.* Über die erste Herkunft des Kabiren-Dienstes möchte also aus dieser Geschichte nichts zu schließen sein. Um so merkwürdiger ist an sich die Erzählung, in Pygmäen-Gestalt habe man die Kabiren zu Memphis gesehen. Wie reimt sich diese Gestalt, wir wollen nicht sagen mit jener Vorstellung, nach welcher Hephästos der höchste Gott sowohl des kabirischen als des ägyptischen Systems ist und alle anderen Götter nur Ausflüsse von ihm; wie reimt sich eine solche Abbildung auch nur mit dem Namen der großen Götter, welcher den Kabiren so allgemein beigelegt wird? Einer der älteren Untersucher wollte die Schwierigkeit durch Auslegung hinwegräumen,* untunlich schon darum, weil unzweifelhafte Spuren sind, daß dieselben Götter auch außer Aegypten zwergartig gebildet wurden.* In bildlichen Vorstellungen, wie bei dem Dichter, trägt der Greis Anchises die vaterländischen Penaten in der Hand aus Ilium,* ein Beweis wenigstens der Kleinheit dieser Bilder, die Gottheiten darstellten, welche mit kabirischen zunächst verwandt waren. Man könnte versucht sein zu sagen: die ersten Kabiren wenigstens sei'n alle dienende Gottheiten oder Camille, darum sei'n sie als Knaben gebildet worden. Aber Knaben sind keine Zwerge. Angemeßner ist folgendes, zumal es auf einer Vorstellung beruht, die erweislich vorhanden war.* Als Götter und als die ältesten der Wesen wurden sie notwendig in ehrwürdiger Gestalt und als Alte gedacht; als Camille aber jugendlich und wie Knaben. Die noch rohe aber aufrichtige Idoloplastik wußte diese streitenden Begriffe nur in der Gestalt von Zwergen zu vereinigen. Vorauszusetzen dabei ist allerdings, was sich indeß auch sonst rechtfertigen läßt, daß nur die ersten Kabiren in solcher Gestalt abgebildet wurden, denn nur als Söhne des Hephästos, nur sofern selbst Hephäste, waren die Kabiren zu Memphis in Pygmäengestalt zu sehen. Sonst glauben wir, einen, der menschlichen Einbildungskraft auch sonst gewöhnlichen und besonders wieder an altdeutsche und nordische Vorstellungen erinnernden, Zug darin zu finden, diesen nämlich, große aber mehr zauberische als natürliche Kräfte mit der Zwergengestalt vereinigt zu denken. Hat doch schon einer alten nichts weniger als gradezu verwerflichen Ableitung zufolge unser deutsches Wort Zwerg das griechische Theurgos zur Wurzel und demnach von Hausaus die Bedeutung eines theurgischen zauberkräftigen Wesens. Auch an unsre Bergmännlein dürfen wir erinnern, von denen noch unser treuherziger Landsmann Georg Agricola zu erzählen weiß; denn auch sie sind ja so zu reden Söhne des Hephästos, die mit Metallen Verkehr haben und sogar Waffen aus ihnen verfertigen.* Da indeß mit der Gestalt von Pygmäen grade der Begriff übernatürlicher Stärke verbunden ist, so könnte es nicht befremden, wenn etwa die, welche als Zwergen, in einer andern Wendung als Riesen gedacht wurden,* nicht auffallen, wenn unter den, wie es scheint, noch kleiner gedachten, Idäischen Daktylen* auch Hercules genannt wird, und wenn jenes unförmliche Bild der ältesten Kabiren sich in die herrlichen Gestalten der Dioskuren verklärt.* Auf den Begriff zauberischer, theurgischer Kräfte führt also auch die Angabe ihrer Gestalt zurück. Welche Bedeutung durch ihren gemeinschaftlichen Namen ausgedrückt sei, möchte zuletzt Untersuchung verdienen. Hierüber jedoch ist unter allen Forschern fast Eine Meinung. Den Begriff der mächtigen, der starken Götter drücke der Kabiren-Name aus, nach der Bedeutung eines gleichlautenden hebräischen Worts. Alle andere Bedenklichkeiten gegen diese Erklärung* überwindet beinah' das Eine, daß eben diese Götter immer und überall, zusammen und auch einzeln, die Großen, die Mächtigen genannt werden.* Dennoch was bürgt dafür, daß eben dieser Begriff durch das Wort Kabiren ausgedrückt worden? Es bleibt immer der nicht grundlose Zweifel, daß eigentlich nur die höheren Götter des kabirischen Systems die Großen genannt worden.* Aber auch zu allgemein, nicht bezeichnend genug für den eigentümlichen Begriff, lautet der Name, um sich durch die erste Ähnlichkeit hinreißen zu lassen. Von selbst dringt uns die Untersuchung, die Eigentümlichkeiten der Kabiren nochmals in Einem Bilde zusammen zu fassen. Die ersten Kabiren also waren magische oder bestimmter zu reden theurgische, die höheren Götter zur Wirkung bringende Kräfte oder Naturen.* Doch nicht einzeln, nur in ihrer unauflöslichen Folge und Verkettung üben sie den Zauber aus, durch den das Überweltliche in die Wirklichkeit gezogen wird. Nun stehen auch die durch sie zur Offenbarung gebrachten Götter mit ihnen wieder in einer magischen Verknüpfung. Die ganze Kabiren-Reihe bildet also eine vom Tiefsten bis in's Höchste reichende Zauberkette. Kein Glied dieser Kette darf unwirksam sein oder austreten, soll nicht der Zauber verschwinden. Wie nicht die Erscheinung Eines Dioskuren, wie nur das Zeichen der zwei vereinten Flammen den Seefahrern heilbedeutend ist, so sind die Kabiren nur zusammen die großen heilbringenden Götter und werden nicht einzeln, sondern nur gemeinschaftlich verehrt.* Also den Begriff der unauflöslich (wie Dioskuren) Vereinigten und zwar der magisch Vereinigten mußte der Name bedeuten, wenn er vollkommen ihre gemeinschaftliche Natur ausdrücken sollte. Hätte man nun für den gegebnen Begriff den Namen zu erfinden, so wäre kein mehr bezeichnender auszudenken als der der Kabiren, sobald man denselben von einem andern Wort der nämlichen Sprache ableitet, welches zugleich den Begriff einer unauflöslichen Vereinigung und den des Zaubers in sich schließt.* Wird nun schon durch das genaue Zusammentreffen von Wort und Sache diese Erklärung die wahrscheinlichere, so erhebt sie zur Gewißheit eine unerwartet aber um so bestätigender hinzutretende Ähnlichkeit. Ein Götter-Rath, also ein zusammengehöriges Ganzes von Göttern, findet sich bei den alten Etruskern, unbekannt waren die einzelnen Namen,* aber sie alle zusammen hießen _Consentes_ und _Complices_,* welches nur Erklärung, ja wörtliche Übersetzung des Kabiren-Namens ist, wofern ihm die von uns angenommene Bedeutung zugeschrieben wird. Es waren ihrer sechs männliche und sechs weibliche Wesen, außer diesen aber, dem sie gemeinschaftlich untergeordnet waren, Jupiter. Denkt man an die Geschlechts-Doppelheit aller alten Gottheiten, nicht eben daß in einerley Wesen widernatürlich beide Geschlechter vereiniget waren, sondern daß jede Persönlichkeit oder so zu sagen jede Stufe in der Götterfolge durch eine männliche und weibliche Gottheit zugleich bezeichnet war,* so entdeckt sich auch hier wieder jene kabirische, sich in Jupiter als Einheit auflösende Siebenzahl.* Verschiedene Götter, sind sie doch zusammen wie Einer.* Dorthin, nach dem Tuseerland hatten, wie geschichtlich bekannt ist, Pelasgische Pflanzer ihre Götter gebracht, an Laviniums Küste schiffte Aeneas die trojanischen Penaten aus. Und von eben diesen tuscischen Göttern versichert Varro, _Complices_ sei'n sie genannt worden, weil sie nur mit einander leben und mit einander sterben können. Unmöglich wäre, zu diesem Ausdruck etwas hinzuzusetzen oder den wahren Gedanken jener vereinigten Götter trefflicher zu bezeichnen. Und so wird hinwiederum die erforschte Bedeutung des Namens urkundlich für den inneren Sinn des Kabirensystems, ein Zeugniß unserer zuerst aus der Folge dieser Götter entwickelten Erklärung. Darstellung des unauflöslichen, in einer Folge von Steigerungen vom Tiefsten in's Höchste fortschreitenden Lebens, Darstellung der allgemeinen Magie und der im ganzen Weltall immer daurenden Theurgie, durch welche das Unsichtbare ja Überwirkliche unabläßig zur Offenbarung und Wirklichkeit gebracht wird, das war ihrem tiefsten Sinn nach die heilig geachtete Lehre der
 
-kommenden Gottes, gewinnt die Verehrung derselben
-einen Schein, der sich auch mit der besseren Menschheit
-verträgt und der allein erklärt, wie die den vielen Göt-
-tern erzeigte Verehrung so tiefe und fast unausreißbare
-Wurzeln schlagen, so lange sich erhalten konnte. We-
-der überhaupt zur Erklärung alter Götterlehre, noch zur
-Erklärung der samothracischen insbesondere geeignet
-scheint also die Vorstellung der Emanation. Hier schei-
-tert sie an dem recht verstandenen Begriffe des Kadmilos.
-Eine von unten wie Zahlen aufsteigende Reihe bilden
-die vier uns urkundlich bekannten samothracischen Gott-
-heiten. Kadmilos, nicht den drei andern untergeord-
-net, steht vielmehr über ihnen. Diese Einsicht verwan-
-delt auf einmal die ganze Folge in eine lebendig fort-
-schreitende, und öffnet uns die Aussicht in eine weitere
-Entwickelung der bis zur vierten Zahl bekannten Reihe.
-Die nächste Frage ist unstreitig, welcher Natur jener
-El, jener Gott sei, dessen Verkündiger und Diener
-zwar alle vorangehende Gottheiten, zunächst aber und
-nnmittelbar Kadmilos ist? Unstreitig beginnt mit diesem
-Gott eine neue Reihe von Offenbarungen, durch die sich
-die Folge der Persönlichkeiten bis in die Sieben- und
-Achtzahl fortsetzt. Doch die vollständige Entwickelung
-dieser Reihe, die noch andere Mittel fodert als in den
-
-
-### 0033
-
-- ( 26 )--
-samothracischen Überlieferungen für sich liegen, ist nicht
-unser Zweck. Es genügt uns, so weit dieß möglich
-ist, über die Natur der dem Kadmilos solgenden Gott-
-heit einigen Aufschluß zu geben. Zunächst also ist klar,
-daß jene ersten Gottheiten diejenigen Kräfte sind, durch
-deren Wirken und Walten vorzugsweise das Weltganze
-besteht; klar also, daß sie weltliche, kosmische Gotthei-
-ten sind. Denn sie heißen allesammt Hephäste (7), in
-keinem andern Sinn, als Alexander der Große sagte,
-auch Parmenio sei Alexander. Hephästos selbst ist in
-keiner Kabirenreihe, so wenig als sein Name unter denen
-der fieben Planeten oder in dem Kreis der Wochentage
-vorkommt, dem Schlüssel, wie ich einst zu zeigen hoffe,
-aller Göttersysteme. Sie alle zusammen, diese voran-
-gehenden oder wie wir auch sagen können, dienenden
-Gottheiten, sind Hephästos (77). Die Schöpfung des
-Hephästos ist die Welt der Nothwendigkeit. Er ist es,
-der in strengem Zwange das All hält (78). Er aber ist
-es auch, der den Göttern, den höheren unstreitig als er
-selbst, die innerweltlichen Sitze bildet (7). Eben dieses
-thun also jene dienenden Gottheiten, die sich auch da-
-durch wieder als die, nur die Epiphanie, die Offenba-
-rung der höheren Götter vorbereitenden darstellen. Man
-könnte von ihnen sagen, sie sei'n nicht sowohl göttliche,
-
-
-### 0034
-
--( 27 )-
-als gottwirkend, theurgische Naturen, und als theur-
-gisch stellt sich je mehr und mehr die ganze Verkettung
-dar. Wenn also jene vorangehenden Persönlichkeiten
-weltliche Gottheiten sind, so ist der Gott, zu dem sie
-die Führer und Leiter sind, und dem unmittelbar Kad-
-milos dient, der überweltliche Gott, der Gott, der sie
-beherrscht und dadurch Herr der Welt ist, der Demi-
-urg oder im höchsten Sinne Zeus (s). So hieß in
-Eleusis der, welcher den Hermes oder Kadmilos vor-
-stellte, der heilige Herold, aber der höchste Priester,
-welcher den höchsten der Götter vorstellte, war das Eben-
-bild des Welterbauers und als solcher geschmückt (s).
-Der etruscisch römische Camillus war keineswegs ein
-jedem Priester ohne Unterschied dienender Gehülfe, er
-war, was bisher nicht beachtet worden, der ausdrück-
-lichen Erklärung alter Schriftsteller zufolge, der dem
-Priester des Iupiters dienende Knabe (8-). Da also
-dieser den Zeus selbst vorstellte, so war der Camillus zu
-ihm in demselben Verhältniß, in welchem nach der ge-
-gebenen Ansicht der kabirische Kadmilos zum höchsten
-Gott ist. Die aufsteigende Reihe verhält sich daher jetzt
-so: Das tiefste Ceres, deren Wesen Hunger und Sucht,
-und die der erste entfernteste Anfang alles wirklichen,
-offenbaren Seyns ist. Die nächste Proserpina, Wesen
-
-
-### 0035
-
--( 28 )-
-oder Grundanfang der ganzen sichtbaren Natur; dann
-Dionysos, Herr der Geisterwelt. Über Natur und
-Geisterwelt das die beiden sowohl unter sich als mit
-dem Überweltlichen vermittelnde, Kadmilos oder Her-
-mes (8s). Über diesen allen der gegen die Welt freie
-Gott, der Demiurg (d). Also ein von untergeordne-
-ten Persönlichkeiten oder Naturgottheiten zu einer höch-
-sten sie alle beherrschenden Persönlichkeit, zu einem über-
-weltlichen Gott, aufsteigendes System war die kabirische
-Lehre (). Noch weit entfernt aber ist diese Darstel-
-lung von jener andern Behauptung, die zuerst War-
-burton ausgeschmückt, nach ihm auch deutsche Gelehrte
-annehmlich gefunden, welcher zufolge das eigentliche
-Geheimniß aller Mysterien des Altertums die Lehre
-von der Einheit Gottes war, und zwar in jenem ver-
-neinenden alle Vielheit ausschließenden Sinne, den die
-jetzige Zeit mit diesem Begriffe verbindet. Undenkbar
-wäre schon an sich ein solcher Widerspruch zwischen dem
-öffentlichen Götterdienst und der Geheimlehre. Er
-konnte, wie Sainte-Croix bemerkt, nicht kurze Zeit,
-geschweige an zweytausend Iahre dauren, ohne die Al-
-täre umzustoßen, ja ohne die Ruhe der bürgerlichen
-Gesellschast zu erschüttern. Mit der einen Hand er-
-schaffen und mit der andern vernichten, öffentlich täu-
-
-
-
--( 29 )-
-schen und insgeheim aufklären, den Götterdienst durch
-Gesetze befestigen, die Frevel dagegen mit Ernst bestra-
-fen, heimlich den Unglauben nähren und aufmuntern,
-welche Gesetzgebung (d6)! Ein Gedanke, der einer in
-so manchen Verhältnissen an Betrug gewöhnten Zeit
-vielleicht zusagen konnte, den aber das grade, gesunde,
-kräftige Alterthum wie mit Einer Stimme verwirft (s7).
-Es ist vielmehr alle Wahrscheinlichkeit, daß in den Ge-
-heimnissen ebendasselbe, was in dem öffentlichen Dienst,
-aber nur nach seinen verborgenen Beziehungen darge-
-stellt wurde, und daß jene von diesem sich nicht mehr un-
-terschieden, als etwa die esoterischen oder akroamatischen
-Vorträge der Philosophen von den exoterischen. Vol-
-lends aber jener, nicht alt- nicht neutestamentlich, nur
-etwa mahommedanisch zu nennende Monotheismus, dessen
-Begriff doch eigentlich immer jenen Behauptungen zu
-Grund gelegt wird, widerstrebt dem ganzen Alter-
-thum und der schöneren Menschlichkeit, die sich ganz in
-dem Ausspruche des Heraklit spiegelt, dem auch Plato
-Beifall gegeben: Das Eine weise Wesen will nicht das
-alleinige genannt sein, den Namen Zeus will es (ss)!
-Eine andere Folge möchte man versucht sein, jener ob-
-wohl flüchtigen Vergleichung zu geben zwischen samo-
-thracischen und alttestamentlichen Vorstellungen, die
-
-
-### 0037
-
-- ( 30 )-
-weiter fortgesetzt noch auf tiefere Übereinstimmungen
-leiten würde. Man könnte darin eine neue Bestäti-
-gung sehen wollen der älteren von Gerhard Vossus,
-Bochart und anderen ehrenwerthen Forschern gefaßten
-Ansicht. Nach derselben ist die gesammte Götterlehre
-des Heydenthums nur Verunstaltung der alttestamentli-
-chen Geschichte und der an das Volk Gottes ergange-
-nen Offenbarung (8). Diese also wird für ein Aeußer-
-stes und Letztes genommen, über das keine geschichtliche
-Erklärung hinausgehen kann. Wie aber, wenn diese
-Annahme selbst nur willkührlich wäre? Wenn sich schon
-in griechischer Götterlehre (von indischer und anderer
-morgenländischer nicht zu reden) Trümmer einer Er-
-kenntniß, ja eines wissenschaftlichen Systems zeigten,
-das weit über den Umkreis hinausginge, den die älteste
-durch schriftliche Denkmäler bekannte Offenbarung ge-
-zogen hat ()? Wenn überhaupt diese nicht sowohl
-einen neuen Strom von Erkenntniß eröffnet hätte, als
-den durch eine frühere schon eröffneten nur in ein engeres,
-aber eben darum sicherer fortleitendes Beet eingeschlos-
-sen? Wenn sie, nach einmal eingetretener Verderbniß
-und unaufhaltsamer Entartung in Vielgötterei, mit
-weisester Einschränkung, von jenem Ursystem nur einen
-Teil, aber doch diejenigen Züge erhalten hätte, die
-
-
-### 0038
-
--( 31 )-
-wieder ins große und umfassende Ganze leiten können?
-Diesem jedoch sei wie ihm wolle, so beweisen jene Ver-
-gleichungen wenigstens, daß der griechische Götterglaube
-auf höhere Quellen als auf ägyptische und indische Vor-
-stellungen, zurückzuführen ist. Ia wenn die Frage ent-
-stünde, welche von den verschiednen Götterlehren, ob
-die ägyptische und indische, ob die griechische näher der
-Urquelle geschöpft sei; der unbefangene Forscher würde
-kaum anstehen, für die letzte zu entscheiden. In der
-griechischen Fabel, jener Göttergeschichte, wie sie vor-
-züglich Homer den Griechen gedichtet, ist es eine un-
-schuldige, fast kindische Phantasie, die, nur gleichsam
-versuchsweise, spielend und mit dem Vorbehalt es wie-
-derherzustellen, das Band auflöst, wodurch die vielen
-Götter Ein Gott sind; im ägyptischen und indischen
-System ist ein ernstlicher Mißverstand, ja ein dämo-
-nisches nicht zu verkennen, ein nur mit Absicht wirken-
-der Geist des Irrthums, den der Mißverstand in's Un-
-geheure, ja in's Gräuelhafte auswirkt. Hatte jenes
-Naturvolk der Pelasger, aus dem alle griechische Kraft
-und Herrlichkeit aufgegangen scheint (2), die Grund-
-begriffe schon getrübt, nicht in natürlicher Unschuld und
-Frische erhalten, nimmer, so hoch wir den lebendigen
-Sinn der Griechen anschlagen mögen, konnten diese Vor-
-
-
-### 0039
-
--( 32)
-stellungen in so lautere Schönheit sich entfalten, nim-
-mer so treu, so arglos, so unbefangen mitten im Spiel,
-jene tieferen Verbindungen bewahren, deren geheimer
-Zauber uns auch dann noch trifft, wenn wir die Göt-
-tergestalten in ihrer völligen dichterischen und künstleri-
-schen Unabhängigkeit vor uns walten lassen. Wieder-
-hergestellt wurde jenes im Spiel der Dichtung gelöste
-Band im Ernst der Geheimlehren. Geschichtlich un-
-zweifelhaft ist, daß auch diese den Griechen vom Aus-
-land oder von den Barbaren gekommen. Aber warum
-eben aus Aegypten? Weil Herodot von den dodonäi-
-schen Priesterinnen gehört, aus Aegypten haben die Pe-
-lasger zuerst die Namen der Gottheiten erfahren ()?
-Aber derselbe Herodot gibt kurz zuvor eben diese Herlei-
-tung der griechischen Götternamen aus Aegypten nur
-für seine Meynung (3), die um so weniger Entschei-
-dendes haben kann, da ihr so wesentliche Mittel der
-Beurteilung fehlten und Urkunden, die vor uns auf-
-geschlagen liegen (). Welche ganz andere Welt ging
-dem Vater der Geschichte auf, wenn er die althebräi-
-schen Denkmäler kannte, ihm, dessen Aufmerksamkeit
-nicht entgangen war, daß die ersten bacchischen Orgien
-Griechenlands von jenen Phöniciern herkommen, die
-sich mit dem Tyrier Kadmus in Bäotien niedergelas-
-
-
-### 0040
-
--( 33 )-
-sen (). Über die Geheimnisse Samothrace's äußert
-er sich entschieden, die Insul habe sie von den Pelasgern
-empfangen, welche zuerst dort, ehe mit den Athenern
-zusammen gewohnt (). Der einzige, doch nur schein-
-bare Grund, der einige Forscher bewegen konnte, die
-erste Quelle des Kabiren-Dienstes in Aegypten zu su-
-chen (), ist eine besondere Erzählung des jonischen
-Geschichtschreibers. Zu Memphis sei Kambyses in das
-Heiligthum des Hephästos gegangen und habe des Bil-
-des nicht wenig gespottet. Denn es sei, wie die Phöni-
-cischen Patäken, die Nachbildung eines Pygmäen. Auch
-in das Heiligthum der Kabiren, in das niemanden als
-dem Priester zu gehen verstattet gewesen, sei der Frevler
-gedrungen und habe unter vielem Gelächter ihre Bilder
-verbrannt, denn auch sie seien den Bildern des He-
-phästos ähnlich (). Die Vergleichung der Hephästos-
-und der Kabiren-Bilder mit den phönicischen Schutz-
-göttern würde jedoch die umgekehrte Ableitung der Ka-
-biren Aegyptens von den Zwerggöttern Phöniciens eben
-so gut verstatten, da dieses Land nach eben so unver-
-werflichen Zeugnissen zu den ältesten Sitzen der Kabiren
-gehört (2). Über die erste Herkunft des Kabiren-
-Dienstes möchte also aus dieser Geschichte nichts zu
-schließen sein. Um so merkwürdiger ist an sich die Er,
-
-
-### 0041
-
--( 34 )-
-zählung, in Pygmäen-Gestalt habe man die Kabiren
-zu Memphis gesehen. Wie reimt sich diese Gestalt, wir
-wollen nicht sagen mit jener Vorstellung, nach welcher
-Hephästos der höchste Gott sowohl des kabirischen als
-des ägyptischen Systems ist und alle anderen Götter
-nur Ausflüsse von ihm; wie reimt sich eine solche Ab-
-bildung auch nur mit dem Namen der großen Götter,
-welcher den Kabiren so allgemein beigelegt wird? Einer
-der älteren Untersucher wollte die Schwierigkeit durch
-Auslegung hinwegräumen (1), unthunlich schon dar-
-um, weil unzweifelhafte Spuren sind, daß dieselben
-Götter auch außer Aegypten zwergartig gebildet wur-
-den (11). In bildlichen Vorstellungen, wie bei dem
-Dichter, trägt der Greis Anchises die vaterländischen
-Penaten in der Hand aus Ilium (1), ein Beweis
-wenigstens der Kleinheit dieser Bilder, die Gottheiten dar-
-stellten, welche mit kabirischen zunächst verwandt waren.
-Man könnte versucht sein zu sagen: die ersten Kabiren
-wenigstens sei'n alle dienende Gottheiten oder Camille,
-darum sei'n sie als Knaben gebildet worden. Aber Kna-
-ben sind keine Zwerge. Angemeßner ist folgendes, zu-
-mal es auf einer Vorstellung beruht, die erweislich vor-
-handen war (3). Als Götter und als die ältesten der
-Wesen wurden sie notwendig in ehrwürdiger Gestalt
-
-
-### 0042
-
-"
--( 35 )--
-und als Alte gedacht; als Camille aber jugendlich und
-wie Knaben. Die noch rohe aber aufrichtige Idolo-
-plastik wußte diese streitenden Begriffe nur in der Gestalt
-von Zwergen zu vereinigen. Vorauszusetzen dabei ist
-allerdings, was sich indeß auch sonst rechtfertigen läßt,
-daß nur die ersten Kabiren in solcher Gestalt abgebildet
-wurden, denn nur als Söhne des Hephästos, nur so-
-fern selbst Hephäste, waren die Kabiren zu Memphis in
-Pygmäengestalt zu sehen. Sonst glauben wir, einen,
-der menschlichen Einbildungskraft auch sonst gewöhnli-
-chen und besonders wieder an altdeutsche und nordische
-Vorstellungen erinnernden, Zug darin zu finden, die-
-sen nämlich, große aber mehr zauberische als natürliche
-Kräfte mit der Zwergengestalt vereinigt zu denken. Hat
-doch schon einer alten nichts weniger als gradezu ver-
-werflichen Ableitung zufolge unser deutsches Wort Zwerg
-das griechische Theurgos zur Wurzel und demnach von
-Hausaus die Bedeutung eines theurgischen zauberkräfti-
-gen Wesens. Auch an unsre Bergmännlein dürfen wir
-erinnern, von denen noch unser treuherziger Landsmann
-Georg Agricola zu erzählen weiß; denn auch sie sind ja
-so zu reden Söhne des Hephästos, die mit Metallen
-Verkehr haben und sogar Waffen aus ihnen verferti-
-gen (i). Da indeß mit der Gestalt von Pygmäen
-
-
-### 0043
-
--( 36 )--
-grade der Begriff übernatürlicher Stärke verbunden ist,
-so könnte es nicht befremden, wenn etwa die, welche
-als Zwergen, in einer andern Wendung als Riesen
-gedacht wurden (105), nicht auffallen, wenn unter den,
-wie es scheint, noch kleiner gedachten, Idäischen Dakty-
-len (10) auch Hercules genannt wird, und wenn jenes
-unförmliche Bild der ältesten Kabiren sich in die herr-
-lichen Gestalten der Dioskuren verklärt (07). Auf
-den Begriff zauberischer, theurgischer Kräfte führt also
-auch die Angabe ihrer Gestalt zurück. Welche Bedeu-
-tung durch ihren gemeinschaftlichen Namen ausgedrückt
-sei, möchte zuletzt Untersuchung verdienen. Hierüber
-jedoch ist unter allen Forschern fast Eine Meynung.
-Den Begriff der mächtigen, der starken Götter drücke
-der Kabiren-Name aus, nach der Bedeutung eines
-gleichlautenden hebräischen Worts. Alle andere Be-
-denklichkeiten gegen diese Erklirung (108) überwindet
-beinah' das Eine, daß eben diese Götter immer und
-überall, zusammen und auch einzeln, die Großen, die
-Mächtigen genannt werden (0). Dennoch was bürgt
-dafür, daß eben dieser Begriff durch das Wort Kabiren
-ausgedrückt worden? Es bleibt immer der nicht grund-
-lose Zweifel, daß eigentlich nur die höheren Götter des
-kabirischen Systems die Großen genannt worden (11).
-
-
-### 0044
-
-- f 27 )-
-Aber auch zu allgemein, nicht bezeichnend genug für den
-eigenthümlichen Begriff, lautet der Name, um sich
-durch die erste Aehnlichkeit hinreißen zu lassen. Von
-selbst dringt uns die Untersuchung, die Eigenthümlich-
-keiten der Kabiren nochmals in Einem Bilde zusammen
-zu fassen. Die ersten Kabiren also waren magische oder
-bestimmter zu reden theurgische, die höheren Götter
-zur Wirkung bringende Kräfte oder Naturen (111 .
-Doch nicht einzeln, nur in ihrer unauflöslichen Folge
-und Verkettung üben sie den Zauber aus, durch den
-das Überweltliche in die Wirklichkeit gezogen wird.
-Nun stehen auch die durch sie zur Offenbarung gebrach-
-ten Götter mit ihnen wieder in einer magischen Ver-
-knüpfung. Die ganze Kabiren-Reihe bildet also eine
-vom Tiefsten bis in's Höchste reichende Zauberkette.
-Kein Glied dieser Kette darf unwirksam sein oder aus-
-treten, soll nicht der Zauber verschwinden. Wie nicht
-die Erscheinung Eines Dioskuren, wie nur das Zeichen
-der zwey vereinten Flammen den Seefahrern heilbedeutend
-ist, so sind die Kabiren nur zusammen die großen heil-
-bringenden Götter und werden nicht einzeln, sondern
-nur gemeinschaftlich verehrt (). Also den Begriff der
-unauflöslich (wie Dioskuren) Vereinigten und zwar der
-magisch Vereinigten mußte der Name bedeuten, wenn
-
-
-### 0045
-
-( 38 )--
-er vollkommen ihre gemeinschaftliche Natur ausdrücken
-sollte. Hätte man nun für den gegebnen Begriff den
-Namen zu erfinden, so wäre kein mehr bezeichnender
-auszudenken als der der Kabiren, sobald man denselben
-von einem andern Wort der nämlichen Sprache ableitet,
-welches zugleich den Begriff einer unauflöslichen Verei-
-nigung und den des Zaubers in sich schließt (13). Wird
-nun schon durch das genaue Zusammentreffen von Wort
-und Sache diese Erklärung die wahrscheinlichere, so er-
-hebt sie zur Gewißheit eine unerwartet aber um so be-
-stätigender hinzutretende Aehnlichkeit. Ein Götter-
-ath, also ein zusammengehöriges Ganzes von Göt-
-tern, findet sich bei den alten Etruskern, unbekannt
-waren die einzelnen Namen (11), aber sie alle zusammen
-hießen Consentes und Complices (115), welches nur
-Erklärung, ja wörtliche Übersetzung des Kabiren-Na-
-mens ist, wofern ihm die von uns angenommene Bedeu-
-tung zugeschrieben wird. Es waren ihrer sechs männ-
-liche und sechs weibliche Wesen, außer diesen aber, dem
-sie gemeinschaftlich untergeordnet waren, Iupiter.
-Denkt man an die Geschlechts-Doppelheit aller alten
-Gottheiten, nicht eben daß in einerley Wesen widerna-
-türlich beide Geschlechter vereiniget waren, sondern daß
-jede Persönlichkeit oder so zu sagen jede Stufe in der
-
-
-### 0046
-
--( 39 ) --
-Götterfolge durch eine männliche und weibliche Gottheit
-zugleich bezeichnet war (1), so entdeckt sich auch hier
-wieder jene kabirische, sich in Iupiter als Einheit auf-
-lösende Siebenzahl (17). Verschiedene Götter, sind sie
-doch zusammen wie Einer (118). Dorthin, nach dem
-Tuseerland hatten, wie geschichtlich bekannt ist, Pelas-
-gische Pflanzer ihre Götter gebracht, an Laviniums
-Küste schiffte Aeneas die trojanischen Penaten aus.
-Und von eben diesen tuscischen Göttern versichert Var-
-ro, Complices sei'n sie genannt worden, weil sie nur
-mit einander leben und mit einander sterben können.
-Unmöglich wäre, zu diesem Ausdruck etwas hinzuzu-
-setzen oder den wahren Gedanken jener vereinigten Göt-
-ter trefflicher zu bezeichnen. Und so wird hinwiederum
-die erforschte Bedeutung des Namens urkundlich für
-den inneren Sinn des Kabirensystems, ein Zeugniß un-
-serer zuerst aus der Folge dieser Götter entwickelten Er-
-klärung. Darstellung des unauflöslichen, in einer Folge
-von Steigerungen vom Tiefsten in's Höchste fortschrei-
-tenden Lebens, Darstellung der allgemeinen Magie und
-der im ganzen Weltall immer daurenden Theurgie, durch
-welche das Unsichtbare ja Überwirkliche unabläßig zur
-Offenbarung und Wirklichkeit gebracht wird, das war
-ibrem tiefsten Sinn nach die heilig geachtete Lehre der
-
-
-### 0047
-
--( 40 -
 Kabiren. In diesen Ausdrücken freilich wurde sie dort,
 in Samothrace, schwerlich vorgetragen; ohnehin hatte
 die Einweihung in die Geheimnisse mehr die Absicht,
@@ -724,7 +289,7 @@ chischen Begeisterung ergeben gewesen, ja sogar zu den
 - ( 49) -
 Klodonen und Mimallonen gehört habe, (s. von diesen
 Creuzer's Symbolik und Mythologie Th. III. S. 208.
-ff.). Ich weiß nicht, ob die Vermuthung schon geäußert
+ff.). Ich weiß nicht, ob die Vermutung schon geäußert
 worden, daß dieser von der Mutter auf den Sohn, ihrer
 unbewußt, übertragene dionysische Anhauch es war, der
 den trunkenen Iüngling über den Indus führte.
@@ -759,7 +324,7 @@ a certc tempore pueros inititatos. Vgl. Meursii
 Eleus. Opp. II. p. 502.
 (19) Münter setzt die auf samothracische Weihen sich
 beziehende Inschrift mit guten Gründen an's Ende des
-zweyten oder in's dritte Iahrhundert. Die unbedingte Auf-
+zweiten oder in's dritte Iahrhundert. Die unbedingte Auf-
 hebung der Mysterien überhaupt erfolgte bekanntlich erst
 unter Theodosius, Sainte-Croix p. 501.
 (20) Dasselbe äußert Choiseul-Gouiffier II. p. 123.
@@ -1089,7 +654,7 @@ de sind oder waren von aller Ewigkeit.
 (45) Euseb. Praep. ev. L. II. c. 10. wie Tozgaoe
 durch Mischung übersetzt, erweckt leicht einen falschen
 Begriff. Ich übersetzte es: Zusammenziehung in dem
-Sinn, wie zwey Vocalen zusammengezogen werden.
+Sinn, wie zwei Vocalen zusammengezogen werden.
 Auch Verschmelzung wäre gut; das Wort bedeutet über-
 haupt eine Verbindung, in der das eine durch das an-
 dere gemäßigt wird, temperamentum. Ob Ic für
@@ -1365,7 +930,7 @@ wieder zum Zauberer wird und Eigenschaften erhält, die
 dem gewöhnlich sogenannten Hephästos nicht zukommen.
 Daß er dennoch durch Hephästos erklärt wird, zeigt auf
 die wahre Bedeutung. Er ist der Feuer-Gott, denn auf
-jeden Fall hat er mit Feuer zu thun. Er heißt Hephä-
+jeden Fall hat er mit Feuer zu tun. Er heißt Hephä-
 sios, wie der ägyptische Phthas, auch bei Eusebius,
 
 
@@ -1704,7 +1269,7 @@ l Wege.
 divinator Dei. Es. 3. 2. steht 20p neben 2d. Ist
 es wahr, wie erzählt wird (Plut. pl. phil. L. II. in.),
 daß Pythagoras zuerst den Inbegriff aller Dinge "ao-
-genannt, so sieht es zweydentig aus um die gewöhnliche
+genannt, so sieht es zweidentig aus um die gewöhnliche
 Erklärung dieses Worts. Nach der Urlehre, aus deren
 Quellen Pythagoras schöpfte, ist die ganze Welt nur ein
 Kesem. ein aueurium Dei. Ich bemerke, daß Kas-
@@ -1792,7 +1357,7 @@ Hephästos ist, wird sich durch Anm. 80. erledigen.
 Procl. in Plat. Theol. VI, 22.
 (80) Aber auch Dionysos ist Demiurg und zwar der
 den Hephästos gewißermaßen überwindende Demiurg,
-der die Schöpfung aus den Banden der Nothwendigkeit
+der die Schöpfung aus den Banden der Notwendigkeit
 erlöst und in freie Mannichfaltigkeit aus einander setzt.
 Dieser scheinbare Widerspruch löst sich schon durch die
 allgemeine Bemerkung, daß ein Wesen oder Princip,
@@ -1804,7 +1369,7 @@ Folgendes! Auch Zeus ist wieder Dionysos, wie ja auch
 mitunter ausdrücklich gelehrt wurde. (S. die Anführnn-
 gen von Creuzer III. 397. vgl. mit 416.) Nämlich Zeus
 verhält sich zu den drei ersten Potenzen wieder, wie sich
-die zweyte zu der ersten verhält. Ich sage zu den drei
+die zweite zu der ersten verhält. Ich sage zu den drei
 ersten, obschon wir bisher vier zählten. Denn tiefer an-
 gesehen ist Ceres keine arithmetische Zahl. Sie ist die
 Mutter der Zahlen, die intelligible Dyas, mit der nach
@@ -1854,7 +1419,7 @@ flaminicarum et flaminum prministros. Daher ist
 minius Camillus puer dicebatur ingenuus patrimus
 et matrimus, qui Flamini Diali ad sacra premini-
 strabat, nicht so zu verstehen, als wolle er nur das
-Beiwort Flaminius erklären; sondern der dem Iupiters-
+Beiwort Flaminius erklären; sondern der dem Jupiters-
 Priester dienende Knabe hieß ursprünglich und vorzugs-
 weise Camillus. Daß er ae sein mußte, ein
 Knabe, deß beide Eltern lebten, war nicht weniger be-
@@ -2091,9 +1656,9 @@ balistarum fabulas. Aber nun kam das ägyptische Vor-
 
 -( 89 )-
 urteil. Münter allein in der ang. Abh. S. 34. Anm.
-gibt zwey Erklärungen. Noch mehrere kann man bei
+gibt zwei Erklärungen. Noch mehrere kann man bei
 Creuzer III. 388. angeführt finden. Bentley, der den
-Namen doch nicht los werden kann und p. 90. zum zwey-
+Namen doch nicht los werden kann und p. 90. zum zwei-
 tenmal auf ihn zurückkommt, begnügt sich, zu bemerken,
 die Sylbe e (nach der Lesart Hasralog) könne nimmer-
 mehr weder griechisch noch lateinisch sein. Darum habe
@@ -2136,7 +1701,7 @@ bräisch oder alttestamentlich ist. Doch dieser Name ist ja
 blos orphisch und beweist also nichts für ägyptische! Nun
 höre man Plut. de Is. et Os. p. 359. T r o-
 o " e ((5'Oploc) r é 'Ep-
-zal o cn epseevo. Omphis also ein zweyter
+zal o cn epseevo. Omphis also ein zweiter
 Name des Osiris? Hier weiß sogar Iablonski keinen
 Rath. Die Stelle muß verdorben sein, gewiß hat Plu-
 tarch Pöc geschrieben, denn nur für ein solches Wort
@@ -2265,9 +1830,9 @@ gekappten Hemd und mit einem um die Lenden herab-
 hangenden Schurzleder (wie Kabiren auf Münzen; Ka-
 biren-Hammer und Schlägel fehlt in andern Beschrei-
 bungen auch nicht). Diese pflegen den Erzgräbern kei-
-nen Schaden zu thun, sondern schweifen herum in den
+nen Schaden zu tun, sondern schweifen herum in den
 Schachten und Gängen und scheinen alle mögliche Arbei-
-ten vorzunehmen, da sie doch nichts thun. Bisweilen
+ten vorzunehmen, da sie doch nichts tun. Bisweilen
 werfen sie die Arbeiter mit Steinchen, verletzen sie jedoch
 nie, wenn sie nicht gereizt und in ihrer Gaukel-Arbeit
 gestört werden. Weßhalb die Bergleute durch sie von
@@ -2485,7 +2050,7 @@ fes (der ihrer Natur nach untrennlichen) war von der
 vermeynten Entdeckung verschiedener Epochen in der Ge-
 schichte des samothracischen Dienstes kein Gebrauch zu
 machen. Sainte-Croix p. 28. Is. behauptet, es sei'n
-in S. nur zwey Gottheiten verehrt worden (Himmel und
+in S. nur zwei Gottheiten verehrt worden (Himmel und
 Erde); darauf sei'n ägyptische uud phönicische Vorstel-
 lungen hinzugekommen; hierauf habe man angefangen,
 die alten samothracischen Gottheiten mit den griechischen
@@ -2533,17 +2098,17 @@ durch Zusammenstückelung zu erklären, sollte sich wenig-
 
 - ( 102 )---
 stens immer auf gründliche Beweise stützen. Aber wenn
-Athenion z. B., bei Schol. Ap. l. c., von nur zwey Ka-
+Athenion z. B., bei Schol. Ap. l. c., von nur zwei Ka-
 biren spricht, geschieht es auf eine Art, die zeigt, daß
 er vom Eigentlichen nicht redet oder es nicht kannte, die
-zwey Kabiren sind ihm Jasion und Dardanus. Und
+zwei Kabiren sind ihm Jasion und Dardanus. Und
 doch führt ihn Sainte-Croix als Gewährsmann dafür
-an, daß nur zwey Gottheiten gewesen. Sind Jasion
+an, daß nur zwei Gottheiten gewesen. Sind Jasion
 und Dardanus vielleicht auch Cclum und Terra? Höchst
 lehrreich dagegen sind Varros Aeußerungen, aus denen,
 weil leichthin gelesenen oder wenigstens mißverstandnen,
 eigentlich zuerst jene Meynung aufgebracht worden, in
-S. habe man anfänglich nur zwey Gottheiten verehrt.
+S. habe man anfänglich nur zwei Gottheiten verehrt.
 So lautet die Hauptstelle im Zusammenhang L. IV. p.
 17. Immortalia et mortalia expediam, ita ut prius,
 quod ad Deos pertinet, dicam. (Aus dieser prafatio
@@ -2551,7 +2116,7 @@ erhellt, daß die zunächst folgende Worte eigene Philoso-
 phie des Varro sind.) Principes Dei Cclum et Ter-
 ra. Hi Dei iidem, qui in Aegypto Serapis et Isis et
 "ste Harpocrates digito (qui) significat (hier wird den
-zweyen gleich eine dritte beigesellt; ob diese Worte der
+zweien gleich eine dritte beigesellt; ob diese Worte der
 Vers eines Dichters, etwa des Lucilius, sind oder eigene
 des Varro, ist gleichgültig - iidem), qui sunt Taau-
 tes et Astarte apud Phcenicas, ut idem principes in
@@ -2570,7 +2135,7 @@ tuit duas virileis species aheneas, Dei magni, neque,
 ut volgus putat, hi Samothraces Dii, qui Castor
 et Pollux: sed hi (scil. Samothraces Dii sunt) mas
 et femina (also verschieden von jenen in Ambracia zu
-sehenden zwey männlichen Gestalten), et hi (s. iidem),
+sehenden zwei männlichen Gestalten), et hi (s. iidem),
 quos augurum libri scriptos habent sic: Divi po-
 tes, et sunt (scil. hi, potes dicti) pro illeis qui in
 Samothrace eo dovcroi. HIac duo, ccelum et terra,
@@ -2582,11 +2147,11 @@ Isis, in Phönicien durch Astarte und Taaut, in Sa-
 mothracien ebenfalls durch eine männliche und weibliche
 Gottheit repräsentirt. Varro sagt also nicht einmal, die
 Zweyzahl sei die älteste Form der Lehre (Creuzer II. 291.
-Anm.), sondern nur die principes Dei seien zwey; ge-
+Anm.), sondern nur die principes Dei seien zwei; ge-
 setzt, es war wirklich seine Absicht, alle Gottheiten auf
 eine ihnen zu Grunde liegende Zweyheit philosophisch zu-
-rückzuführen, so ist doch zwischen zwey ersten oder al-
-len zu Grunde liegenden Gottheiten und zwischen zwey
+rückzuführen, so ist doch zwischen zwei ersten oder al-
+len zu Grunde liegenden Gottheiten und zwischen zwei
 zuerst allein angenommenen ein deutlicher Un-
 terschied. Daß die gegebene Erklärung von principibus
 Deis (anfangenden Gottheiten) nicht aus der Luft gegrif-
@@ -2613,7 +2178,7 @@ Diese letzten Stellen des römischen Gelehrten möchten
 wohl auch Licht geben, in wiefern einige, wie Schol,
 Apoll. I. c. erwähnt, sagen konnten, es gebe, vorzugs
 weise (so muß wohl rpo übersetzt werden, wenn man
-es nicht auf bezieht), nur zwey Kabiren, Zeus-
+es nicht auf bezieht), nur zwei Kabiren, Zeus-
 den älteren, und Dionysos, den jüngeren (von beiden);
 die einzige Stelle, die man für die ursprüngliche Zwey-
 zahl, doch nicht von Cclum und Terra, anführen könn-
@@ -2621,8 +2186,8 @@ te. Die dieß sagten (es waren nur Einige) hatten aus
 dem tiefsten geschöpft. Hier kann nämlich nicht der erste
 Dionysos (s. Anm. 80.), sondern nur der Höchste ge-
 meynt sein, dem selbst Zeus vorangeht. So ließ sich
-wohl sagen: es gebe eigentlich nur zwey Kabiren; denn
-diese zwey waren die höchsten, auf die alles hinausging,
+wohl sagen: es gebe eigentlich nur zwei Kabiren; denn
+diese zwei waren die höchsten, auf die alles hinausging,
 die gleichsam allein übrig blieben, a quibus, mit Varro
 zu reden, reliqui omnes superabantur. Aus den zu-
 letzt angeführten Stellen des Varro folgt wohl auch, daß
@@ -2640,7 +2205,7 @@ Fortsetzung nicht hindern, doch wieder alles (die ganze
 Reihe) auf den Grundgegensatz von Männlichem und
 Weiblichem dualistisch zurückzuleiten. Denn alle Philo-
 phie wird auf eine solche allem zu Grunde liegende Zwey-
-heit geführt, ohne darum zu behaupten, daß nur zwey
+heit geführt, ohne darum zu behaupten, daß nur zwei
 Wesen sei'n. Auch nennt er anderwärts (Augustin.
 l. c. c. 27) Cclum et Terram nur die d0 prc
 Deorum, und Augustinus sagt von ihm nur (c. eod.
@@ -2693,7 +2258,7 @@ unserer Ansicht keine geringe Bestätigung ist. Iene allen
 zu Grunde liegende Dreizahl kann indeß fortschreitend
 sich wiederholen, und so wie die Drei Persephone, Dio-
 nysos, Kadmilos sein können, so können sie auch Iuno,
-Iupiter, Minerva sein, wie sie Varro gleich nach der
+Jupiter, Minerva sein, wie sie Varro gleich nach der
 eben angeführten Stelle erklärt. Varro's Aeußerungen
 verdienten wohl diese ausführliche Erörterung. Was ein
 solcher Mann, der Gelehrteste nicht nur seines Volks,
@@ -2707,12 +2272,12 @@ bei noch bestehendem samothracischem Dienst, alles auf's
 genaueste erforscht hatte, über Sinn und Bedeutung
 desselben urteilte, das ist wohl auch jetzt noch emtscheidend.
 Zugleich wird dieses hinreichen zum Beweis, daß die An-
-gabe: es sei'n von Anfang nur zwey Kabiren gewesen
+gabe: es sei'n von Anfang nur zwei Kabiren gewesen
 und die andern erst in der Folge zufällig dazu gekommen,
 alles geschichtlichen Grundes ermangelt, daß also nicht
 einmal nöthig ist, deßhalb an das übrigens sehr Wahr-
 scheinliche zu erinnern, daß nicht allen alle Zahlen (oder
-Grade) mitgeteilt und vielen vielleicht wirklich nur zwey
+Grade) mitgeteilt und vielen vielleicht wirklich nur zwei
 Persönlichkeiten bekannt wurden. Aber der das System
 zuerst besaß, mußte es ganz besitzen, durch Zusammenstü-
 ckelung konnte es nimmer entstehen. Die Kabirenreihe
@@ -3019,7 +2584,7 @@ Münzen heißen die Glieder des dem Hohenpriester bei-
 gegebenen hohen Raths (des Synedrii) seine r.
 S. u. a. Tychsen in Commentt. Gott. XI. 155.
 (116) Vgl. oben Anm. 31.
-(117) Hiebei muß nämlich Iupiter in doppelter
+(117) Hiebei muß nämlich Jupiter in doppelter
 Beziehung gedacht werden, einmal, sofern er selbst einer
 der sieben, dann sofern Zeus, wie die Orphiker sagen,
 der Anfang, Zeus das Mittel und Zeus das Ende ist.
@@ -3033,9 +2598,9 @@ Orph. Argon. 464. 465.
 gey aouop-
 Ee öpre-, äyra porol,
 wo Bruuck ad Apoll. I. 917. und nach ihm Hermann
-erstens sehr unnöthig ägna in das gewöhnliche , zwey-
+erstens sehr unnöthig ägna in das gewöhnliche , zwei-
 tens pft" in anra verwandelt und so grade die eigen-
-thümliche Farbe in diesen Stellen verwischt haben. Schon
+tümliche Farbe in diesen Stellen verwischt haben. Schon
 daß sie ungewöhnlicher, also die schwerere Lesart ist, soll-
 te die hergebrachte schützen; welcher Abschreiber wäre
 wohl unwissend genug, daß ihm nicht für t, äora,
@@ -3046,16 +2611,16 @@ wohl unwissend genug, daß ihm nicht für t, äora,
 - ( 117 )-
 für äenr,, änr" einfiele, welcher gelehrt genug, um
 sich das Gegenteil einfallen zu lassen? Op subint.
-iee heißen die kabirischen Weihen ihrer Eigenthümlichkeit
+iee heißen die kabirischen Weihen ihrer Eigentümlichkeit
 wegen; sie waren Aufnahme in den Bund der Götter
 (man denke nur immer an den alt- und neutestamentlichen
 Begriff dieses Worts, Berith hieß ihr ältester Sitz in
 Phönicien). Auf einen Bund deuteten auch die Binden
 (ral), das Abzeichen des Eingeweihten, Schol. Ap.
 l. c. Wie hier, ist auch Ap. I. 917. äsyere das eigen-
-thümliche Wort.
+tümliche Wort.
 (120) Plat. in Phaed. p. 77. 177. Bip.
-(121) In zwey Schaaren sind aber gesondert die Seelen
+(121) In zwei Schaaren sind aber gesondert die Seelen
 der Todten,
 Eine die unstet irret umher auf der Erde, die Andre,
 Welche den Reigen beginnt mit den leuchtenden Him-
@@ -3227,7 +2792,7 @@ ibid.
 53 3011 b.
 53 31 ult. worden
 werden.
-54 31 6 in dem hebr. Wort soll der zweyte Buch-
+54 31 6 in dem hebr. Wort soll der zweite Buch-
 stabe ein Cheth sein.
 54 31 10 vor Lud. soll ein Punct stehen.
 54 31 14 der erste Buchstab des arab. Worts soll
@@ -3313,10 +2878,10 @@ Osers.
 70 64 11 Asars
 70 64 18 Carpentres
 Carpentras.
-70 64 20 soll unter dem zweyten Buchstab des hebr.
+70 64 20 soll unter dem zweiten Buchstab des hebr.
 Worts ein Schva stehen.
 70 64 21 das hebr. Wort soll Osiri heißen; der
-zweyte Buchstab daher ein Vau sein.
+zweite Buchstab daher ein Vau sein.
 71 64 9 aber
 eben.
 71 64 16 mago
@@ -3350,7 +2915,7 @@ Aaeieor.
 die letzte Zeile ist sinnlos abgebrochen und
 74 67
 so zu ergänzen: unter- geordnete wäre.
-75 71 4 die zwey hebr. Wörter im Anfang der Zei-
+75 71 4 die zwei hebr. Wörter im Anfang der Zei-
 le müssen in Eins gezogen werden.
 75 71 4v. u. würden
 wurden.
@@ -3413,7 +2978,7 @@ S. Anm. Zeile statt:
 lies:
 97 108 2 stimmender
 Stimmenden.
-98 108 12 gehört zum ersten Buchstaben des zweyten
+98 108 12 gehört zum ersten Buchstaben des zweiten
 hebr. Worts ein Chirek.
 98 108 20 Gebbir
 Gebhir.
