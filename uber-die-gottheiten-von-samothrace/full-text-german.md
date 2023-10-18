@@ -82,370 +82,67 @@ Jeder, der nicht Fremdling ist in Forschungen dieser Art, wird, auch unversicher
 
 *) Merkwürdig ist in dieser Beziehung gewiß folgende Genealogie von Begriffen in der hebräischen Sprache. [HEBREW] _desideravit, concupivit_ [HEBREW], _pater_, (also die väterliche, urhebende Kraft,) [HEBREW], _pauper, egenus_. Daß wir in der von [GREEK] gegebnen Erklärung vom Eingriff des Hungers unmittelbar zu dem der (schmachtenden) Sehnsucht übergehen, kann dem nicht auffallen, der weiß, daß unser jezt edleres deutsches Schmachten ursprünglich (wie noch im Niederdeutschen und in einigen Zusammensetzungen) mit Hungern ganz gleichbedeutend war, und Schmacht (ein altes Wort) Hunger ist. S. Adelung.
 
-(33) S. Grotius de ver. rel. chr. L. I. §. 16.
-not. 15. Solche Völker waren außer den Morgenlän-
-dern die alten Deutschen, die gallischen und die slavischen
-Völkerschaften. Von den Athenern s. Aul. Gell. III. 2.
-(34) Pausan. Arcad. VIII. 0. p. 216.
-Mare s s - iep-.
-ro de raa ao, 7e0 povrl u a8y olr
-aroee. Pindar Nem. XI. 7. nennt die Hestia "-
-ra Oed, doch nur wie es scheint in Bezug auf die Trank-
-opfer, nach dem vom Schol. angef. Sophokleischen Bruch-
-stück s rgd- (gr) Ae Er, womit Cic. de n. D.
-II, 27. zu vergleichen ist und Schol. Aristoph. Vesp.
-842.,E ie orocic a' Elc goorr. Aber eben
-dieses, daß ihr in den Prytaneen und auch sonst die
-Trankopfer zuerst ausgegossen worden, deutet wie die so
-allgemeine Redensart a' 'Elc (vom ersten Anfang)
-dahin, daß ihr Begriff mit dem der ältesten Natur ver-
-mischt war.
-(35) Hymn. in Cer. v. 122., wo Wolf mit siche-
-rem Gefühle jezt na wieder hergestellt hat. Kein er-
-freulicher Name wie der von Ruhnkenius vorgeschlagne
-oie (die Geberin) oder in demselben Sinn das von ei-
-uigen beibehaltne g kann dort siehen, so wenig als ein
+*) S. _Grotius de ver. rel. chr. 50. 1. §. 16. not. 15._ Solche Völker waren außer den Morgenländern die alten Deutschen, die gallischen und die slavischen Völkerschaften. Von den Athenern s. _Aul. Gell. 3. 2._
 
+*) _Pausan. Arcad. 8. 9. p. 216._ [GREEK] --- [GREEK]. Pindar _Nem. 11. 7._ nennt die Hestia [GREEK], doch nur wie es scheint in Bezug auf die Trankopfer, nach dem vom Schol. angef. Sophokleischen Bruchstück [GREEK] ([GREEK]) [GREEK], womit _Cic. de n. D. 2, 27._ zu vergleichen ist und _Schol. Aristoph. Vesp. 842_. "[GREEK]." Aber eben dieses, daß ihr in den Prytaneen und auch sonst die Trankopfer zuerst ausgegossen worden, deutet wie die so allgemeine Redensart [GREEK] (vom ersten Anfang) dahin, daß ihr Begriff mit dem der ältesten Natur vermischt war.
 
-### 0064
+*) _Hymn. in Cer. v. 122._, wo Wolf mit sicherem Gefühle jezt [GREEK] wieder hergestellt hat. Kein erfreulicher Name wie der von _Ruhnkenius_ vorgeschlagne [GREEK] (die Geberin) oder in demselben Sinn das von einigen beibehaltne [GREEK] kann dort stehen, so wenig als ein bekannter oder völlig erdichteter. [GREEK] war der geheime Name der Ceres, der in Demeter verborgen war. Daß _Deo_ für _Devo_ ist, wie _Dia_ für _Diva_, kann mit Sicherheit angenommen werden.
 
-( 57)--
-bekannter oder völlig erdichteter. Aaa war der geheime
-Name der Ceres, der in Demeter verborgen war. Daß
-Deo für Devo ist, wie Dia für Diva, kann mit Sicher-
-heit angenommen werden.
-(36) Von longuit, woher n (das der zi-
-schenden Aussprache des final. zufolge mit a ganz
-gleichlautet, wenn diese Form nur sonst beglaubigt wä-
-re) languor, presertim muliebris und languor
-ex morb0. Ganz entsprechend unserem deutschen Sucht,
-wovon Wachter Gloss. germ. "Sucht a) morbus v.
-c. Mondsucht, Fallsucht. b) affectus gravior to-
-tum hominem instar morbi occupans. Tales sunt
-omnes cupiditates. e s- heißt die der Toch-
-ter beraubte Ceres Hymn. v. 305., die von Sehnsucht
-schmachtende, denn schmachten ist consumi, tabescere,
-sive inedia, sive situ, sive desiderio, Vachter.
-Gloss. h. v. Die Etymologie von 2, bonus, die
-Ignarra ad hymn. 122. versucht, entbehrt nach der
-frühern Bemerkung (35) aller Wahrscheinlichkeit.
-(37) Herodot. II. 123.
-(38) Tc vo ' A- nrsc ecp r r Acö.
-Plut. de fac. in 0. I. Opp. IV. p. 546.
-(39) Nämlich 28; eine Bedeutung, die der Ge-
-nealogie Anm. 32. noch beigefügt werden kann.
-(40) - -- -- neque enim Cereremque Famemque
-Fata coire sinunt. -
-Ovid. Met. VIII. 19.
-(41) Aeschyl. Eum. 145. ai- daluoec oppos.
-" e (dem Apollo) ib. und 7 vo v. 157.
+*) Von [HEBREW] _longuit_, woher [HEBREW] (das der zischenden Aussprache des [HEBREW] _final_. zufolge mit [GREEK] ganz gleichlautet, wenn diese Form nur sonst beglaubigt wäre) _languor, præsertim muliebris_ und [HEBREW] _languor ex morbo_. Ganz entsprechend unserem deutschen Sucht, wovon _Wachter Gloss. germ. "Sucht a. morbus v. c. Mondsucht, Fallsucht. b. affectus gravior totum hominem instar morbi occupans. Tales sunt omnes cupiditates._" [GREEK] heißt die der Tochter beraubte Ceres _Hymn. v. 305._, die von Sehnsucht schmachtende, denn schmachten ist _consumi, tabescere, sive inedia, sive situ, sive desiderio, Wachter. Gloss. h. v._ Die Etymologie von [HEBREW], _bonus_, die _Ignarra ad hymn. 122._ versucht, entbehrt nach der frühern Bemerkung (35) aller Wahrscheinlichkeit.
 
+*) _Herodot. 2. 123._
 
-### 0065
+*) [GREEK]. _Plut. de fac. in o. l. Opp. 4. p. 546._
 
--( 5
-8)-
-(42) Bep Callim. Hymn. in Cer. v. 103.
-vergl. IIiad. 21V, 532., wo Heyne (VIII. 707.)
-"Famem suum fanum habuisse memini lectum.
-Daß der Name Erysichthon selbst bedeutend ist und viel-
-leicht an die gleiche Wurzel mit Axieros erinnert, wollen
-wir nicht einmal behaupten.
-(43) Tenob. Cent. II. Prov. VI. är- 0
-Ayera roc és äs eia srre npteeo, az0 a rep
-aöré af rr -. Die Töchter des Danaus
-sollen die Thesmophorien aus Aegypten gebracht und dar-
-inn die Pelasgischen Weiber unterrichtet haben, Herodot.
-II. 171.
-(44) Excerpt. ex Damasc. de princ. in Volfi
-anccd. grc. T. III. p. 259. S zarc r rr
-oppae (EEno) pod rar orera, ,
-I1000 Oo. Die Zeit hat hier offenbar dieselbe
-Bedeutung, wie Teruané akhereré, die Zeit ohne Grän-
-zen, im Parsischen System. Weil die Götter in einer Folge
-hervortraten, sind sie selber nur Kinder der allgewaltigen
-Zeit. Nach einem merkwürdigen Bruchstück ebenfalls bei
-Damasc. l. c. wurde diese Zeit ohne Gränzen als das an
-sich Gleichgültige (Indifferente) betrachtet, das eben dar-
-um Alles ist; ob wohl als solches nur mit dem Verstand,
-nur im Denken zu fassen (dieß ist der Sinn des r 7r0
-a / oe-o, welches in der Folge durch pero
-o vollkommen erklärt wird). Aber diese selbe Zeit
-ist in ihrem Wirken das Setzende aller Verschiedenheit,
-oder, wie es in einer persischen Urschrift ausgedrückt
-wird: ,der wahre Schöpfer ist die Zeit, die keine
+*) Nämlich [HEBREW]; eine Bedeutung, die der Genealogie Anm. 32. noch beigefügt werden kann.
 
+*) _--- --- --- neque enim Cereremque Famemque Fata coire sinunt. ---_ _Ovid._ Met. 8. 19.
 
-### 0066
+*) _Aeschyl. Eum. 145._ [GREEK] _oppos._ [GREEK] (dem Apollo) _ib._ und [GREEK] _v. 157._
 
-( 59 )-
-Schranken kennt, nichts über sich hat, keine Wurzel,
-ewig gewesen ist und ewig sein wird. S. Zend-Avesta
-von Kleuker Th. III. S. 55. Anm. In unsrer Spra-
-che also würden wir sagen: die Zeit ohne Gränze ist das,
-in welchem nach alter Parsen-Lehre die Einheit und die
-Verschiedenheit selbst als Eins gesetzt sind. Darnach muß
-erklärt werden, wenn das Hervortreten der Verschieden-
-heit in jener Stelle als eine pg erklärt wird, "es"
-(r pzs8) d8ee ((e)) e pad d-
-o 7 c z ooroc po rsr (scil. da -
-a). Daß diese Zeit ohne Gränzen kein summus Deus
-ist, wird jedermann, der den Begriff versteht, mit Tych-
-sen, Comment. Soc. Gott. Vol. XI. p. 130.) gegen
-Anquetil und Kleuker behaupten. Selbst ein princi-
-pium superias kann sie nicht heißen, denn sie geht durch
-alles hindurch. Aber die bloße Ewigkeit, was man nach
-jetzigen Schulhegriffen so nennt, ist sie doch auch nicht,
-so wenig als der Satz: "Ormusd und Ahriman, beide
-gab die gränzenlose Zeit, nur soviel heißen kann: "Bei-
-de sind oder waren von aller Ewigkeit.
-(45) Euseb. Praep. ev. L. II. c. 10. wie Tozgaoe
-durch Mischung übersetzt, erweckt leicht einen falschen
-Begriff. Ich übersetzte es: Zusammenziehung in dem
-Sinn, wie zwei Vocalen zusammengezogen werden.
-Auch Verschmelzung wäre gut; das Wort bedeutet über-
-haupt eine Verbindung, in der das eine durch das an-
-dere gemäßigt wird, temperamentum. Ob Ic für
-Eoe gehalten werden könne, s. Anm. 47. Im Phöni-
-ischen war es sicher kein von 2, das nur lieben be-
+*) [GREEK] _Callim. Hymn. in Cer. v. 103._ vergl. _Iliad. 24, 532._, wo _Heyne (8. 707.) "Famem suum fanum habuisse memini lectum."_ Daß der Name Erysichthon selbst bedeutend ist und vielleicht an die gleiche Wurzel mit Axieros erinnert, wollen wir nicht einmal behaupten.
 
+*) _Zenob. Cent. 2. Prov. 6._ [GREEK]. Die Töchter des Danaus sollen die Thesmophorien aus Aegypten gebracht und darinn die Pelasgischen Weiber unterrichtet haben, _Herodot. 2. 171._
 
-### 0067
+*) _Excerpt. ex Damasc. de princ. in Wolfii anecd. græc. T. 3. p. 259._ [GREEK]. Die Zeit hat hier offenbar dieselbe Bedeutung, wie _Zeruané akhereré_, die Zeit ohne Gränzen, im Parsischen System. Weil die Götter in einer Folge hervortraten, sind sie selber nur Kinder der allgewaltigen Zeit. Nach einem merkwürdigen Bruchstück ebenfalls bei _Damasc. l. c._ wurde diese Zeit ohne Gränzen als das an sich Gleichgültige (Indifferente) betrachtet, das eben darum Alles ist; ob wohl als solches nur mit dem Verstand, nur im Denken zu fassen (dieß ist der Sinn des [GREEK], welches in der Folge durch [GREEK] vollkommen erklärt wird). Aber diese selbe Zeit ist in ihrem Wirken das Setzende aller Verschiedenheit, oder, wie es in einer persischen Urschrift ausgedrückt wird: "der wahre Schöpfer ist die Zeit, die keine Schranken kennt, nichts über sich hat, keine Wurzel, ewig gewesen ist und ewig sein wird." S. Zend-Avesta von Kleuker T. 3. S. 55. Anm. In unsrer Sprache also würden wir sagen: die Zeit ohne Gränze ist das, in welchem nach alter Parsen-Lehre die Einheit und die Verschiedenheit selbst als Eins gesetzt sind. Darnach muß erklärt werden, wenn das Hervortreten der Verschiedenheit in jener Stelle als eine [GREEK] erklärt wird, "[GREEK]." Daß diese Zeit ohne Gränzen kein _summus Deus_ ist, wird jedermann, der den Begriff versteht, mit Tychsen, _Comment. Soc. Gott. Vol. 11. p. 130._) gegen Anquetil und Kleuker behaupten. Selbst ein _principium superias_ kann sie nicht heißen, denn sie geht durch alles hindurch. Aber die bloße Ewigkeit, was man nach jetzigen Schulbegriffen so nennt, ist sie doch auch nicht, so wenig als der Satz: "Ormusd und Ahriman, beide gab die gränzenlose Zeit," nur soviel heißen kann: "Beide sind oder waren von aller Ewigkeit."
 
---( 60 ) -
-deutet, sondern ein von 1y oder 7d abgeleitetes Wort,
-das hier durch Il0c ausgedrückt wird. Vgl. über die
-eigentliche Bedeutung dieses Worts Anm. 36.
-(46) Is fecit Venerem et POTIIN et Phaé-
-thontem, qui Samothrace sanctissimis ceerimoniis
-coluntur. II. N. L. XXVI. c. 4 p. 727.
-(47) Weil Varro die dem Kabirensystem zu Grunde
-liegende Zweyheit als Cclum et Terra ansieht, glaubt
-Sainte-Croix l. c. p. 29. aus Phaethon den Himmel
-machen zu können, oder (was doch so einerley nicht ist)
-la lumiere, qui l'éclaire, dieses sei dann (warum?)
-Arieros, Venus sei Axiokersa und Pothon (Pothos),
-oder Cupido, der junge Cadmillus. Vorsichtiger drückt
-sich Creuzer aus II. 303. "Auf jeden Fall war wohl
-Phaethon kein andrer, als der Lichtbringer Axieros
-(Phthas, Hephästos), und Pothos war der dienende
-Dämon Eros, wie ihn auch Platon kent." Gesetzt
-selbst, der Pothos wäre Eros, so würde er, weil Faoc
-oder nach der alten Form Eaoc doch am Ende von dersel-
-ben Herkunft mit Aoc sein möchte, immer natürlicher
-in diesem Namen als in Kadmilos gesucht. In soweit
-ist die Bedeutung von Ege, Cupido, nur eine Bestäti-
-gung der von'A5l gegebnen Erklärung; die Begriffe
-des Sehnens, Verlangens, Begehrens sind die einzigen,
-welche bei übrigens so verschiednen Gottheiten den Gleich-
-laut der Namen erklären können. Aber dem Sprachge-
-brauch nach ist IIg sehr bestimmt von oa unterschie-
-den. Den eigentlichen Begriff des ersten zeigt die obige
-Anführung aus Hymn. in Cer. und eine größere Zahl
+*) _Euseb. Præp. ev. 50. 2. c. 10._ wie [GREEK] durch Mischung übersetzt, erweckt leicht einen falschen Begriff. Ich übersetzte es: Zusammenziehung in dem Sinn, wie zwei Vocalen zusammengezogen werden. Auch Verschmelzung wäre gut; das Wort bedeutet überhaupt eine Verbindung, in der das eine durch das andere gemäßigt wird, _temperamentum_. Ob [GREEK] für [GREEK] gehalten werden könne, s. Anm. 47. Im Phönicischen war es sicher kein von [HEBREW], das nur lieben bedeutet, sondern ein von [HEBREW] oder [HEBREW] abgeleitetes Wort, das hier durch [GREEK] ausgedrückt wird. Vgl. über die eigentliche Bedeutung dieses Worts Anm. 36.
 
+*) _Is fecit Venerem et POTHON et Phaëthontem, qui Samothrace sanctissimis cærimoniis coluntur. H. N. 50. 36. c. 4 p. 727._
 
-### 0068
+*) Weil Varro die dem Kabirensystem zu Grunde liegende Zweiheit als _Cœlum et Terra_ ansieht, glaubt _Sainte-Croix l. c. p. 29._ aus Phaethon den Himmel machen zu können, oder (was doch so einerlei nicht ist) _la lumière, qui l'éclaire_, dieses sei dann (warum?) Axieros, Venus sei Axiokersa und Pothon (Pothos), oder Cupido, der junge Cadmillus. Vorsichtiger drückt sich Creuzer aus 2. 303. "Auf jeden Fall war wohl Phaethon kein andrer, als der Lichtbringer Axieros (Phthas, Hephästos), und Pothos war der dienende Dämon Eros, wie ihn auch Platon kennt." Gesetzt selbst, der Pothos wäre Eros, so würde er, weil [GREEK] oder nach der alten Form [GREEK] doch am Ende von derselben Herkunft mit [GREEK] sein möchte, immer natürlicher in diesem Namen als in Kadmilos gesucht. In soweit ist die Bedeutung von [GREEK], _Cupido_, nur eine Bestätigung der von [GREEK] gegebnen Erklärung; die Begriffe des Sehnens, Verlangens, Begehrens sind die einzigen, welche bei übrigens so verschiednen Gottheiten den Gleichlaut der Namen erklären können. Aber dem Sprachgebrauch nach ist [GREEK] sehr bestimmt von [GREEK] unterschieden. Den eigentlichen Begriff des ersten zeigt die obige Anführung aus _Hymn. in Cer._ und eine größere Zahl von Nachweisungen bei _Creuzer. ad Plotin. de pulcrit. p. 213._ [GREEK] ist Sehnsucht nach einem verlornen oder doch jetzt abwesenden Gut. Wie [GREEK] sich auf Vergangenheit bezieht, so [GREEK] auf das Gegenwärtige, Anwesende (s. _Plat. in Cratyl. p. 304. Bip._); [GREEK] ist das erste Entbrennen, die Begierde, die dem Besitz vorausgeht, also nach dem noch Zukünftigen strebt (vergl. den Sprachgebrauch in _Plat. Sympos._ [GREEK] _p. 208. Bip._ u. a.), darum paßt der Begriff [GREEK] unter den samothracischen Gottheiten nur auf Ceres, denn sie allein schmachtet oder sehnt sich nach einem Verlorenen, es sei nun die Tochter oder vielmehr der Gott, den sie wie Isis sucht. Jedes Sehnen irgend einer Natur, auch dieses erste und uranfängliche deutet nach alter Lehre auf ein vormaliges Einsgewesensein mit dem, wornach sie sich sehnet (vgl. die auch von Creuzer angef. Worte des Aristophanes in Plat. _Sympos. p. 204._). Auch jene erste Natur ist nur durch eine vorhergegangne Scheidung in jenen Zustand der Einsamkeit, also des Mangels, der Bedürftigkeit gesetzt worden, in dem sie als Sehnsucht erscheint. Aber nicht weniger im Kunstbegriffe war [GREEK] von [GREEK] unterschieden. Wenn auch nach Creuzers Bemerkung (_ad Plot. p. 214._) späterer Sprachgebrauch den Unterschied weniger genau beobachtet haben sollte, so hatte der samothracische Pothos des Skopas seinen Namen vom Ursprung her, und damals gewiß war mit Pothos ein ganz andrer Kunstbegriff verbunden, als mit [GREEK]. Beweis die Erzählung des Pausanias, _Attic. 100. 43. p. 105._ In Megara sah man von der Hand desselben Skopas drei Werke, Eros, Himeros und Pothos, von denen gesagt wird: [GREEK], eine Brachyologie, die nur so aufzulösen ist: "Es sind Gestalten verschieden (gebildet) nach den einem jeden zukommenden Werken, die sich ihren Namen gleich und auch so (verschieden) wie diese verhalten." Die in den drei Gestalten gedachte Fortschreitung konnte keine andre sein, als die oben angegeben worden. Beweis genug, daß die drei keine bloßen Eroten oder _Cupidines_ waren, die der tändelnde Geschmack auch da sieht, wo sie nicht sind. Die dritte Gestalt, die nach dem verlorenen Gegenstand schmachtende Sehnsucht, kann man sich auch hier kaum anders, als weiblich denken. Dem sei, wie ihm wolle, verschieden waren übrigens die beiden Reihen. Der von Plinius erwähnte Pothos bildete mit Phaethon und Venus grade eben so eine plastische Trilogie, wie der von Pausanios mit Himeros und Eros ein zusammengehöriges Ganze ausmachte. Der Pothos bei Plinius wird bestimmt durch die Vorstellungen der Venus und des Phaethon, samothracischen Gottheiten, mit denen er ein Ganzes bildet; der bei Pausanias durch Himeros und Eros, mit denen er Einen Kunstkreis erfüllt. Die Trilogie bei Pausanias scheint, ganz aus dem Geiste des Meisters gekommen, ein künstlerisch-freies Spiel gewesen zu sein, ob ihn gleich vielleicht nicht der spitzfindige Gedanke, die Abstufungen einer bloßen Empfindung darzustellen, sondern etwas Poetischeres und Symbolischeres begeisterte. In der andern hatte er sich freiwillig an etwas Gegebenes gebunden, er wollte nicht eine Venus überhaupt, sondern eine Venus mit der bestimmten Vorstellung der samothracischen, so nicht einen Pothos überhaupt, sondern die Gottheit bilden, welche in Samothrace als Sehnsucht verehrt wurde. So weit also, aber gewiß nicht weiter, waren die beiden Pothos verschieden.
 
--( 61 ) -
-von Nachweisungen bei Creuzer. ad Plotin. de pulcrit.
-p. 213. Iloe ist Sehnsucht nach einem verlornen oder
-doch jetzt abwesenden Gut. Wie Iec sich auf Vergan-
-genheit bezieht, so ue auf das Gegenwärtige, An-
-wesende (s. Plat. in Cratyl. p. 304. Bip.); Ee ist das
-erste Entbrennen, die Begierde, die dem Besitz voraus-
-geht, also nach dem noch Zukünftigen strebt (vergl. den
-Sprachgebrauch in Plat. Sympos. rr rt2 epäer-
-p. 208. Bip. u. a.), darum paßt der Begriff Iöoc un-
-ter den samothracischen Gottheiten nur auf Ceres, denn
-sie allein schmachtet oder sehnt sich nach einem Verlore-
-nen, es sei nun die Tochter oder vielmehr der Gott, den
-sie wie Isis sucht. Iedes Sehnen irgend einer Natur,
-auch dieses erste und uranfängliche deutet nach alter Lehre
-auf ein vormaliges Einsgewesensein mit dem, wornach
-sie sich sehnet (ogl. die auch von Creuzer angef. Worte
-des Aristophanes in Plat. Sympos. p. 204.). Auch
-jene erste Natur ist nur durch eine vorhergegangne Schei-
-dung in jenen Zustand der Einsamkeit, also des Man-
-gels, der Bedürftigkeit gesetzt worden, in dem sie als
-Sehnsucht erscheint. Aber nicht weniger im Kunstbe-
-griffe war IIo von 'Eg unterschieden. Wenn auch
-nach Creuzers Bemerkung (ad Plot. p. 214.) späterer
-Sprachgebrauch den Unterschied weniger genau beobachtet
-haben sollte, so hatte der samothracische Pothos des Sko-
-pas seinen Namen vom Ursprung her, und damals ge-
-wiß war mit Pothos ein ganz andrer Kunstbegriff ver-
-bunden, als mit ac. Beweis die Erzählung des Pau-
-sanias, Attic. C. XLIII. p. 105. In Megara sah
+*) Ceres nämlich ist das hebr. [HEBREW], _Kersa_ nur das chald. [HEBREW]. Daß Ceres nichts anders als das hebr. _Cheres_ ist, läßt sich kaum bezweifeln, wenn man auch nur die gewöhnliche Bedeutung dieses Worts und der davon abstammenden kennt, [HEBREW] _aravit_, [HEBREW] _sata_, _Es. 17, 9._ arab. [ARABIC], _cultura fundi, aratio, satio, ager, satum._ Wer die sonst versuchten Ableitungen kennen lernen will, findet sie in _Villoison Eclaircissements_ zu _Sainte-Croix p. 523._, bei _Ignarra ad hymn. Cer. 122._, auch bei Creuzer 4. 338., der eine morgenländische Wurzel erwartet für Ceres, so wie für das alte nach Varro für _creo_ gebrauchte _cereo_, wovon _Cerus manus_, das Festus durch _creator bonus_ erklärt.
 
+*) _Spanhem. ad Call. hymn. in Cer. 113._ Creuzer 4. 10. 236. 253. Bei Euripides, _Phœn. 689._, heißen Ceres und Proserpine die [GREEK].
 
-### 0069
+*) Diese den aramäischen Mundarten ganz gewöhnliche Bedeutung des Worts [HEBREW] wurde bei den bisherigen Anwendungen auf Erklärung des Ceresnamens übersehen, vielleicht weil sie im Hebräischen seltner ist, denn daß sie auch dieser Mundart nicht fehlt, zeigt T. 7, 3. und der Name Thal der Charasim _Neh. 11, 35. 1 Par. 4, 14._, wo beigesetzt wird, "denn sie waren Charasim, d. h. Zauberer (s. _Sim. Onom. p. 166._), etwa wie die wegen Wahrsagekunst berühmten Einwohner von Telmassus und die wegen Zauberei berüchtigten Männer und Weiber Thessaliens. Aus _Esr. 2, 59. Neh. 7, 61._ lernen wir den Namen eines Orts [HEBREW] kennen in Chaldäa, wo auch der mit Axieros gleichlautende Name vorkommt (_Dan. 9, 1._). Gewöhnlich erklärt man _Tumulus aratioris_, sehr flach; ich zweifle nicht, daß [HEBREW] hier Eigenname und zwar einer Gottheit ist. Wie der Begriff des Ackerbaus und des Zaubers sowohl in jenem Wort als im Begriff der Ceres zusammenhange, leidet noch eine tiefere Erforschung.
 
--( 62)--
-man von der Hand desselben Skopas drei Werke, Eros,
-Himeros und Pothos, von denen gesagt wird: sön d-
-opa razra ra rz ä02 z r a , eine
-Brachyologie, die nur so aufzulösen ist: "Es sind Ge-
-stalten verschieden (gebildet) nach den einem jeden zukom-
-menden Werken, die sich ihren Namen gleich und auch
-so (verschieden) wie diese verhalten." Die in den drei
-Gestalten gedachte Fortschreitung konnte keine andre sein,
-als die oben angegeben worden. Beweis genug, daß
-die drei keine bloßen Eroten oder Cupidines waren,
-die der tändelnde Geschmack auch da sieht, wo sie nicht
-sind. Die dritte Gestalt, die nach dem verlorenen Ge-
-genstand schmachtende Sehnsucht, kann man sich auch
-hier kaum anders, als weiblich denken. Dem sei, wie
-ihm wolle, verschieden waren übrigens die beiden Reihen.
-Der von Plinius erwähnte Pothos bildete mit Phaethon
-und Venus grade eben so eine plastische Trilogie, wie der
-von Pausanios mit Himeros und Eros ein zusammenge-
-höriges Ganze ausmachte. Der Pothos bei Plinins
-wird bestimmt durch die Vorstellungen der Venus und
-des Phaethon, samothracischen Gottheiten, mit denen
-er ein Ganzes bildet; der bei Pausanias durch Himeros
-und Eros, mit denen er Einen Kunstkreis erfüllt. Die
-Lrilogie bei Pausanias scheint, ganz aus dem Geiste des
-Meisters gekommen, ein künstlerisch-freies Spiel gewe-
-sen zu sein, ob ihn gleich vielleicht nicht der spitzfindige
-Gedanke, die Abstufungen einer bloßen Empfindung dar-
-zustellen, sondern etwas Poetischeres und Symbolischeres
-begeisterte. In der andern hatte er sich freiwillig an
+*) _Ovid. Fast. 6. 295. ss._ Auch in einem Tempel des Peloponnes, _Paus. Cor. c. 35. ir._ Dieß hinderte nicht Bilder der Vesta außer ihrem Tempel.
 
+*) Creuzer 3. 455. ff. 533. ff. 4. 247. u. a.
 
-### 0070
+*) Die ursprüngliche Bedeutung des Worts _Magia, Magus_ ist verloren. Die persische Sprache selbst hat kein Wort, von dem ihr [ARABIC] oder [ARABIC] abstammen könnte, daher es Hyde für radical erklärt. Eben so gut könnte aber geschlossen werden, es sei ein der persischen Sprache selbst ursprünglich fremdes Wort. Die arabische mag ihr [ARABIC], _magum effecit_, genommen haben, wo sie will, so zeigt es, wie leicht in morgenländischen Sprachen bei fremden Wörtern die Wurzelbuchstaben sich ändern. Die indische Maja, welche durchaus nichts anderes ist, als Zauberin (_præstigiatrix_) und zwar in demselben Sinn, wie Persephone, wird im Persischen [ARABIC] geschrieben. S. _Langlès Notes_ zu _Recherches Asiat. T. 1. p. 219_. Hierinn also könnte die Hinweisung auf die wahre Bedeutung des Worts liegen.
 
-- ( 63) --
-etwas Gegebenes gebunden, er wollte nicht eine Venus
-überhaupt, sondern eine Venus mit der bestimmten Vor-
-stellung der samothracischen, so nicht einen Pothos über-
-haupt, sondern die Gottheit bilden, welche in Samo-
-thrace als Sehnsucht verehrt wurde. So weit also, aber
-gewiß nicht weiter, waren die beiden Pothos verschieden.
-(48) Ceres nämlich ist das hebr. n. Kersa nur
-das chald. dr. Daß Ceres nichts anders als das
-hebr. Cheres ist, läßt sich kaum bezweifeln, wenn man
-auch nur die gewöhnliche Bedeutung dieses Worts und
-der davon abstammenden kennt, z aravit, vi sa-
-ta, Es. 17, 9. arab. , cultura fundi, aratio,
-satio, ager, satum. Wer die sonst versuchten Ablei-
-tungen kennen lernen will, findet sie in Villoison Eclair-
-cissements zu Sainte-Croix p. 523., bei Ignarra ad
-hymn. Cer. 122., auch bei Creuzer IV. 338., der eine
-morgenländische Wurzel erwartet für Ceres, so wie für
-das alte nach Varro für creo gebrauchte cereo, wo-
-von Cerus manus, das Festus durch creator bonus er-
-klärt.
-(49) Spanhem. ad Call. hymn. in Cer. 113.
-Creuzer IV. 10. 236. 253. Bei Euripides, Phcen.
-689., heißen Ceres und Proserpine die uo0 e.
-(50) Diese den aramäischen Mundarten ganz ge-
-wöhnliche Bedeutung des Worts wurde bei den
-bisherigen Anwendungen auf Erklärung des Ceresnamens
-übersehen, vielleicht weil sie im Hebräischen seltner ist,
-denn daß sie auch dieser Mundart nicht fehlt, zeigt Th.
-7,3. und der Name Thal der Charasim Neh. 11, 35
+*) Creuzer 4. 13.
 
+*) Der Beweis hievon wird für eine andre Gelegenheit vorbehalten.
 
-### 0071
+*) Arnkiel's cimbrische Heyden-Religion 1. S. 62. "Alle Zauberei hat in der nordischen Welt von ihm (Othin) ihren Ursprung u. s. w." Aus _Snoro Sturles. Chron. Norwag._ Ebendas. S. 61. heißt es: "Wenn seine Völker in Nöten und Gefährlichkeiten waren zu Wasser oder zu Lande, riefen sie seinen Namen an und vermeinten Hülfe von ihm zu haben; deßwegen war er all' ihr Trost." Wegen der Freja, _frie, fri_ bedarf es nicht einmal der Erinnerung an die persischen Peris ([ARABIC]) oder Feen.
 
-( 64 ) --
-1Par. 4, 14., wo beigesetzt wird, "denn sie waren Cha-
-rasim, d. h. Zauberer (s. Sim. Onom. p. 166.), etwa
-wie die wegen Wahrsagekunst berühmten Einwohner von
-Telmassus und die wegen Zauberei berüchtigten Männer
-und Weiber Thessaliens. Aus Esr. 2, 59. Neh. 7, 61.
-lernen wir den Namen eines Orts zr y kennen in
-Chaldäa, wo auch der mit Axieros gleichlautende Name
-vorkommt (Dan. 9, 1.). Gewöhnlich erklärt man Tu-
-mulus aratioris, sehr flach; ich zweifle nicht, daß dr
-hier Eigenname und zwar einer Gottheit ist. Wie der
-Begriff des Ackerbaus und des Zaubers sowohl in jenem
-Wort als im Begriff der Ceres zusammenhange, leidet
-noch eine tiefere Erforschung.
-(51) Ovid. Fast. VI. 295. s. Auch in einem Tem-
-pel des Peloponnes, Paus. Cor. c. 35. ir. Dieß hin-
-derte nicht Bilder der Vesta außer ihrem Tempel.
-(52) Creuzer III. 455. ff. 533. ff. IV. 247. n. a.
-(53) Die ursprüngliche Bedeutung des Worts Ma-
-gia, Magus ist verloren. Die persische Sprache selbst
-hat kein Wort, von dem ihr oder a abstammen
-C-
--
-könnte, daher es Hyde für radical erklärt. Eben so
-gut könnte aber geschlossen werden, es sei ein der persi-
-schen Sprache selbst ursprünglich fremdes Wort. Die s
-arabische mag ihr (0 magum effecit, genom-
-men haben, wo sie will, so zeigt es, wie leicht in mor-
-genländischen Sprachen bei sremden Wörtern die Wur-
-zelbuchstaben sich ändern. Die indische Maja, welche
-durchaus nichts anderes ist, als Zauberin (prestigiatrin)
+*) Die Einerleiheit von Osiris und Dionysos weiß jeder aus Herodot und Plutarch. Die Ähnlichkeit der Züge in den Erzählungen von Osiris und Othin muß jedem auffallen, der auch nur den Anfang von _Plut. de Is. et Os. c. 13._ liest: "Osiris, wird erzählt, habe gleich zuerst die Aegypter von der tierischen Lebensweise befreit, indem er ihnen die Früchte gezeigt, Gesetze gegeben und die Götter ehren gelehrt. Darauf habe er das ganze Land, dessen Sitten zu mildern, durchzogen, am wenigsten der Waffen sich bedienend, sondern die Meisten mit Überredung, Wort, allerlei Art Gesang und Tonkunst gesänftiget." Von Othin sagt Arnkiel S. 63. 62. "Dieß alles hat er ausgerichtet durch Reim nnd Gedichte, welche Galdrer oder Schaldrer heißen. Daher die Asiatischen Schaldmeister und Runmeister genannt worden. Was er redete, brachte er reimweis für, nach der Tichter Kunst, also daß man ihm mit Lust zuhörete." Zur Vermeidung jedes Mißverstands bemerke ich, daß Othin mit Wodan nicht Einer ist. Diesen bezeichnet der über die Urzeiten unseres Volks glaubwürdigste Schriftsteller Tacitus mit Recht durch den Mercur.
 
+*) [GREEK]. _Plut. de I. et O. c. 28. p. 333._
 
-### 0072
+*) _Ib. c. 79._ [GREEK] (_Herodot. 2. 123._ [GREEK]) [GREEK].
 
--( 65)-
-und zwar in demselben Sinn, wie Persephone, wird im
-Persischen dl geschrieben. S. Langles Notes zu
-Recherches Asiat. T. I. p. 219. Hierinn also könnte
-die Hinweisung auf die wahre Bedeutung des Worts lie-
-gen.
-(54) Creuzer IV. 13.
-(55) Der Beweis hievon wird für eine andre Gele-
-genheit vorbehalten.
-(50) Arnkiel's cimbrische Heyden-Religion I. S. 62.
-"Alle Zauberei hat in der nordischen Welt von ihm
-(Othin) ihren Ursprung u. s. w. Aus Snoro Sturles.
-Chron. Norwag. Ebendas. S. 61. heißt es: "Wenn
-seine Völker in Nöthen und Gefährlichkeiten waren zu
-Wasser oder zu Lande, riefen sie seinen Namen an und
-vermeynten Hülfe von ihm zu haben; deßwegen war er
-all' ihr Trost. Wegen der Freja, frie, fri bedarf es
-nicht einmal der Erinnerung an die persischen Peris (c,)
-oder Feen.
-(57) Die Einerleyheit von Osiris und Dionysos weiß
-jeder aus Herodot und Plutarch. Die Aehnlichkeit der
-Züge in den Erzählungen von Osiris und Othin muß
-jedem auffallen, der auch nur den Anfang von Plut. de
-Is. et Os. c. 13. liest:Osiris, wird erzählt, habe
-gleich zuerst die Aegypter von der thierischen Lebensweise
-befreit, indem er ihnen die Früchte gezeigt, Gesetze ge-
-geben und die Götter ehren gelehrt. Darauf habe er das
-ganze Land, dessen Sitten zu mildern, durchzogen, am
-wenigsten der Waffen sich bedienend, sondern die Meisten
-mit Überredung, Wort, allerley Art Gesang und Ton-
+*) "Auch das, was die jetzigen Priester mit heiliger Scheu und Umhüllung und Vorsicht äußern, dieser Gott sei Herrscher der Todten und eben der, der bei den Griechen Hades und Pluton genannt wird, stört, weil unvollkommen gewußt, die Mehresten, welche meinen, in und unter der Erde wohne wahrhaft jener heilige Osiris. Aber dieser ist weit von der Erde entfernt, unbefleckt und rein von jeder des Untergangs und Todes empfänglichen Natur." Ebendas.
 
+*) [GREEK]. S. _Zoëga de obel. p. 305._ Dagegen: Fahr' zu Oden! ist eine nordische Verwünschung. Arnkiel S. 66.
 
-### 0073
+*) Creuzer 3. 396.
 
-( 66)--
-kunst gesäuftiget." Von Othin sagt Arnkiel S. 63. 62.
-"Dieß alles hat er ausgerichtet durch Reim nnd Gedich-
-te, welche Galdrer oder Schaldrer heißen. Daher die
-Asiatischen Schaldmeister und Runmeister genannt wor-
-den. Was er redete, brachte er reimweis für, nach der
-Tichter Kunst, also daß man ihm mit Lust zuhörete.
-Zur Vermeidung jedes Mißverstands bemerke ich, daß
-Othin mit Wodan nicht Einer ist. Diesen bezeichnet der
-über die Urzeiten unseres Volks glaubwürdigste Schrift-
-steller Tacitus mit Recht durch den Mercur.
-(58)Ae Aäoc é 00 ersc. Plut. de I. et O.
-c. 28. p. 333.
-(59) Ib. c. 79. e (Herodot. II. 123. ie-
-roe) 9 Pedeee r reöra.
-(60) "Auch das, was die jetzigen Priester mit heili-
-ger Scheu und Umhüllung und Vorsicht äußern, dieser
-Gott sei Herrscher der Todten und eben der, der bei den
-Griechen Hades und Pluton genannt wird, stört, weil un-
-vollkommen gewußt, die Mehresten, welche meynen, in
-und unter der Erde wohne wahrhaft jener heilige Osiris.
-Aber dieser ist weit von der Erde entfernt, unbefleckt und
-rein von jeder des Untergangs und Todes empfänglichen
-Natur. Ebendas.
-(61) Eöpoe ere'Oopoc. S. Toega de obel.
-p. 305. Dagegen: Fahr' zu Oden! ist eine nordische
-Verwünschung. Arnkiel S. 66.
-(62) Creuzer III. 396.
-(63) Plut. de I. et O. c. 27. p. 333.
+*) _Plut. de I. et O. c. 27. p. 333._
 
 
 ### 0074
