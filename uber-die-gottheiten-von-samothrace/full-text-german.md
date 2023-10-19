@@ -16,7 +16,7 @@ Im Norden des aegäischen Meers erhebt sich die Samothracische Insul, von Anfang
 
 # Anmerkungen.
 
-Jeder, der nicht Fremdling ist in Forschungen dieser Art, wird, auch unversichert, von selbst glauben, leichter und angenehmer hätte der Verfasser den Stoff der folgenden Anmerkungen in den Text selbst verarbeitet, als nun von ihm ausgeschieden. Aber etymologische Forschungen, und solche, bei denen es auf Vergleichung von Stellen und Worten alter Schriftsteller ankommt, eignen sich nicht für einen öffentlichen Vortrag, zumal vor gemischten Zuhörern. Den aus der Sonderung entstandnen Nachteilen mußte also der Verfasser sich unterwerfen. Zuerst dem, daß manche Behauptung gradezu aufgestellt worden, die allmählich eingeleitet und aus den einzelnen hieher verwiesenen Untersuchungen Schritt für Schritt entwickelt leichter Eingang finden konnte. Sodann daß die Anmerkungen den Text überschwellen, ja mitunter wohl sich ganz unabhängig von ihm zu machen scheinen. In Bezug auf solche Fälle bemerke ich daher, daß manches angeführt werden mußte, das nicht der einzelnen Erklärung, sondern dem ganzen System von Erklärung zur Stütze dient, das hier zuerst angewendet worden. Einiges mußte in sofern über den Text hinaus zu gehen scheinen, das doch wirklich nöthig ist, ihn zu begründen. Wer daher über das Ganze der Ansicht urteilen will, wird um so weniger umhin können, den Anmerkungen ein eignes Studium zu widmen. Wenn auf die sprachlichen Erörterungen fast zu ängstlicher Fleiß verwendet scheinen sollte, so ist dem Verf. angenehmer, deßhalb getadelt als wegen des Gegenteils gelobt zu werden; denn solche Untersuchungen, wenn nicht mit Strenge und oft peinlicher Sorgfalt getrieben, sind gar Nichts.
+Jeder, der nicht Fremdling ist in Forschungen dieser Art, wird, auch unversichert, von selbst glauben, leichter und angenehmer hätte der Verfasser den Stoff der folgenden Anmerkungen in den Text selbst verarbeitet, als nun von ihm ausgeschieden. Aber etymologische Forschungen, und solche, bei denen es auf Vergleichung von Stellen und Worten alter Schriftsteller ankommt, eignen sich nicht für einen öffentlichen Vortrag, zumal vor gemischten Zuhörern. Den aus der Sonderung entstandnen Nachteilen mußte also der Verfasser sich unterwerfen. Zuerst dem, daß manche Behauptung gradezu aufgestellt worden, die allmählich eingeleitet und aus den einzelnen hieher verwiesenen Untersuchungen Schritt für Schritt entwickelt leichter Eingang finden konnte. Sodann daß die Anmerkungen den Text überschwellen, ja mitunter wohl sich ganz unabhängig von ihm zu machen scheinen. In Bezug auf solche Fälle bemerke ich daher, daß manches angeführt werden mußte, das nicht der einzelnen Erklärung, sondern dem ganzen System von Erklärung zur Stütze dient, das hier zuerst angewendet worden. Einiges mußte in sofern über den Text hinaus zu gehen scheinen, das doch wirklich nötig ist, ihn zu begründen. Wer daher über das Ganze der Ansicht urteilen will, wird um so weniger umhin können, den Anmerkungen ein eignes Studium zu widmen. Wenn auf die sprachlichen Erörterungen fast zu ängstlicher Fleiß verwendet scheinen sollte, so ist dem Verf. angenehmer, deßhalb getadelt als wegen des Gegenteils gelobt zu werden; denn solche Untersuchungen, wenn nicht mit Strenge und oft peinlicher Sorgfalt getrieben, sind gar Nichts.
 
 *) _Samothrace --- attollitur. Plin. N. Hist. 4. 23. p. 24. ed. Hard._ heutzutag Samothraki: den Mündungen des Hebrus und Lyssus gegenüber, nahe am Eingang des Melaeischen Meerbusens. Als älterer Name soll nach _Schol. Apoll. Arg. v. 917._ Leukosia von Aristoteles erwähnt werden [GREEK]; als solchen geben nebst Pausanias _Achaic. 50. 4. p. 530. ed. Kuhn_ mehrere andere auch Dardania an. Über die Ursachen des angeblich späteren Namens Samos finden sich abweichende Erklärungen, die sich zum Teil schon durch die homerische Erwähnung widerlegen. Das Wahrscheinlichste hat Strabo gesehen, _Geogr. 50. 10. p. 457. ed. Paris_, von der Höhe ihrer Berge haben diese sowohl als die beiden andern Samos den Namen erhalten, [GREEK]. Er mochte dabei an [GREEK] _dor._ [GREEK] denken: Bochart, _Geogr. S. 50. 1. c. 8._ leitet dieselbe Bedeutung wahrscheinlicher aus morgenländischen Wurzeln ab. Vgl. die Meinung einiger Ausleger zu _Genes. 2, 4._ und Münter's Erklärung einer Inschrift, die auf die Samothrac. Geh. Bezug hat, Copenh. 1810. S. 29. Demnach würde der Name Samos schon den Zeiten angehören, da Phönicier diese Meere durchschifften, und nur der Zusatz thracische das Spätere sein, das zusammengezogene Samothrace, das Homer noch nicht kennt, (s. die Bemerkung in _Hesych. 2. p. 1148. ed. Alb._ und Virgils Ausdruck: _Threiiciamque Samon, quae nunc Samothracia fertur_) das Allerspäteste. Dieß ist die Meinung der im Text ausgedrückten Stelle des Strabo in _Exc. 50. 7. extr._ [GREEK]. Der Grund des Namens Leukosia mag auf sich beruhen, wie des auffallenderen _Melite_ (Maltha) den Strabo nennt 10. p. 472; _Dardania_ (nämlich _insula_) ist aber so wenig Name, als _Electria_ (_tellus_) bei _Val. Flacc. Arg. 2. 431._ und hiernach zu beurteilen Plinius _l. c._ "_Callimachus_ eam antiquo nomine Dardaniam vocat."
 
@@ -74,7 +74,7 @@ Jeder, der nicht Fremdling ist in Forschungen dieser Art, wird, auch unversicher
 
 *) 50. 3. c. 37.
 
-*) Die Unsicherheit etymologischer Erklärungen, zumal der Götternamen, kommt hauptsächlich davon, daß jede Gottheit gar mancher und sehr verschiedener Eigenschaften fähig ist. Es müßte sonderbar zugehen, wenn die Etymologie nicht irgend eine Bedeutung jedes Namens herauszubringen wüßte, die mit irgend einer Eigenschaft der Gottheit übereinstimmte. Nöthig vor allem also ist, daß der Forschende den Grundbegriff einer Gottheit, gleichsam die Wurzel aller ihrer Eigenschaften, kenne: sonst werden ihm vielleicht Herleitungen in Menge zuströmen, deren keine eine eigentliche Überzeugung mit sich führt, indeß er die wahre, auch wie sie ihm gleichsam von selbst sich darbietet, vorübergeht, weil ihm für den daraus sich ergebenden Sinn der Begriff mangelt. Diese Grundbegriffe werden aber nur durch die Stelle bestimmt, welche jede Gottheit im allgemeinen Göttersystem einnimmt: wer also von diesem nicht wenigstens die Grundzüge erkennt, würde nur raten und auf's Gerathewohl versuchen, aber ohne zu irgend einer Gewißheit zu gelangen, noch häufigen Fehlgriffen zu entgehen. So wenn Bochart den Namen Axieros aus dem hebräischen [HEBREW], _Achsi-Eres_, Mein ist die Erde, erklärt, so ist dieß freilich leicht genug, aber im Grunde sind wir damit nicht mehr gefördert, als der Grieche, wenn er in seiner [GREEK] eine [GREEK], Erdmutter, suchte. Ceres ist wohl auch die Mutter-Erde, aber dieß ist ein abgeleiteter, nicht der ursprüngliche Begriff. Begnügt man sich aber vollends mit allgeme nen Begriffen, wie _magnipotens, perfecte sapiens_ u. ähnl., wo ist noch einige Sicherheit der Erklärung, wo noch eine Spur der Bestimmtheit und Schärfe, die wir in allen Begriffen des Altertums antreffen? Daß man die Sprache, in welcher etymologisirt wird, nicht blos aus Wörterbüchern, sondern aus den Quellen und von den ersten Wurzeln her kenne, sollte sich von selbst verstehen. Aber auch damit ist nicht auszureichen, ohne die noch feinere Kenntniß dessen, was die Grammatiker die _proprietatem verborum_ nennen; denn es kann manchem Wort eine Bedeutung sehr zufällig oder doch nicht in dieser besondern Beziehung zukommen, in welcher sie ihm der gegenwärtigen Erklärung nach beigelegt wird. Nützlich ja nötig wird auch dem etymologischen Erklärer von Götternamen sein, auf die Analogie der Eigennamen in derselben Sprache zu achten, aus der erklärt wird. In wiefern ich nun selbst diesen Voraussetzungen und Forderungen in den folgenden Erklärungs-Versuchen genügt, mögen Kenner beurteilen.
+*) Die Unsicherheit etymologischer Erklärungen, zumal der Götternamen, kommt hauptsächlich davon, daß jede Gottheit gar mancher und sehr verschiedener Eigenschaften fähig ist. Es müßte sonderbar zugehen, wenn die Etymologie nicht irgend eine Bedeutung jedes Namens herauszubringen wüßte, die mit irgend einer Eigenschaft der Gottheit übereinstimmte. nötig vor allem also ist, daß der Forschende den Grundbegriff einer Gottheit, gleichsam die Wurzel aller ihrer Eigenschaften, kenne: sonst werden ihm vielleicht Herleitungen in Menge zuströmen, deren keine eine eigentliche Überzeugung mit sich führt, indeß er die wahre, auch wie sie ihm gleichsam von selbst sich darbietet, vorübergeht, weil ihm für den daraus sich ergebenden Sinn der Begriff mangelt. Diese Grundbegriffe werden aber nur durch die Stelle bestimmt, welche jede Gottheit im allgemeinen Göttersystem einnimmt: wer also von diesem nicht wenigstens die Grundzüge erkennt, würde nur raten und auf's Gerathewohl versuchen, aber ohne zu irgend einer Gewißheit zu gelangen, noch häufigen Fehlgriffen zu entgehen. So wenn Bochart den Namen Axieros aus dem hebräischen [HEBREW], _Achsi-Eres_, Mein ist die Erde, erklärt, so ist dieß freilich leicht genug, aber im Grunde sind wir damit nicht mehr gefördert, als der Grieche, wenn er in seiner [GREEK] eine [GREEK], Erdmutter, suchte. Ceres ist wohl auch die Mutter-Erde, aber dieß ist ein abgeleiteter, nicht der ursprüngliche Begriff. Begnügt man sich aber vollends mit allgeme nen Begriffen, wie _magnipotens, perfecte sapiens_ u. ähnl., wo ist noch einige Sicherheit der Erklärung, wo noch eine Spur der Bestimmtheit und Schärfe, die wir in allen Begriffen des Altertums antreffen? Daß man die Sprache, in welcher etymologisirt wird, nicht blos aus Wörterbüchern, sondern aus den Quellen und von den ersten Wurzeln her kenne, sollte sich von selbst verstehen. Aber auch damit ist nicht auszureichen, ohne die noch feinere Kenntniß dessen, was die Grammatiker die _proprietatem verborum_ nennen; denn es kann manchem Wort eine Bedeutung sehr zufällig oder doch nicht in dieser besondern Beziehung zukommen, in welcher sie ihm der gegenwärtigen Erklärung nach beigelegt wird. Nützlich ja nötig wird auch dem etymologischen Erklärer von Götternamen sein, auf die Analogie der Eigennamen in derselben Sprache zu achten, aus der erklärt wird. In wiefern ich nun selbst diesen Voraussetzungen und Forderungen in den folgenden Erklärungs-Versuchen genügt, mögen Kenner beurteilen.
 
 *) Bochart _Geogr. S. 50. 1. c. 12._ erklärt dieses Wort aus dem hebräischen [HEBREW], wobei er für sich hat, daß es wirklich zur Zusammensetzung von Namen gebraucht worden, wie in Achasias 1 _Reg. 22, 4_. Wäre von Einem Namen die Rede, so möchte es hingehen, aber für drei ist der Begriff zu beschränkt. Weit eigentlicher scheint das Wort [HEBREW], welches in Verbindung mit dem Namen jenes alttestamentlichen Perserkönigs Achas-Weros _Esth. 1, 1._ aber auch in andern Zusammensetzungen, wie in [HEBREW] _Esth. 8, 9._ und: _b. v. 10._ [HEBREW], vorkommt, wo es nur eine Bezeichnung des Amts, der Würde oder der Trefflichkeit überhaupt sein kann. Man beruft sich deßhalb auf das persische [ARABIC], _dignitas, majestas_, wobei es denn wohl vorerst bleiben mag.
 
@@ -144,1061 +144,104 @@ Jeder, der nicht Fremdling ist in Forschungen dieser Art, wird, auch unversicher
 
 *) _Plut. de I. et O. c. 27. p. 333._
 
+*) Es versteht sich, daß das Letzte unsere Meinung ist. Axiokersa und Axiokersos erbauen zusammen das Weltall durch einen doppelten Zauber, da der spätere den frühern nicht aufhebt oder vernichtet, sondern überwindet. Dem wäre so, auch wenn der Name blos den allgemeinen Begriff des Zauberers ausdrückte. Doch ist zu vermuten, nicht _Kersos_, sondern _Kersor_ sei das ursprüngliche, wie _Amilcar_ im Griechischen, [GREEK] lautet und _Barthélemy, Reflexions sur quelques monumens Phéniciens (Mém. de l'Ac. des Inscr. T. 30. pag. 410._ bemerkt: _Les Grecs paroissent avoir terminé en os les noms phéniciens, qui terminoient en [GREEK], par la même raison, que les mots Lacedémoniens terminés en [GREEK], avoient chez les autres peuples de la Grece une terminaison en [GREEK], etc._ Der Name [GREEK] aber, oder [GREEK], würde an den [GREEK] des Sanchuniathon erinnern, von dem gesagt wird, er sei der Hephästos, _Euseb. Pr. ev. 50. 1. p. 35. C._ Das Letzte nun dürfte nicht irren. Denn die ersten Kabiren alle sind Hephäste (s. §. 12. des Textes und die dazu gehörigen Anm.). Überdieß wird hinzugesetzt, [GREEK], wodurch er wieder zum Zauberer wird und Eigenschaften erhält, die dem gewöhnlich sogenannten Hephästos nicht zukommen. Daß er dennoch durch Hephästos erklärt wird, zeigt auf die wahre Bedeutung. Er ist der Feuer-Gott, denn auf jeden Fall hat er mit Feuer zu tun. Er heißt Hephästos, wie der ägyptische Phthas, auch bei Eusebius, 3. 2. p. 115. und bei Suidas, T. 3. p. 615. _voc._ [GREEK], für Vulcan ausgegeben wird, obgleich derselbe Suidas, _voc._ [GREEK] T. 1. p. 396., richtiger und unstreitig aus irgend einer alten Quelle sagt: [GREEK]. Auch er (Phthas) ist nur Hephästos in wiefern das männliche, oder eröffnende, aufschließende Feuer. Um so mehr Aufmerksamkeit verdient, auch nach Akerblads Widerspruch, was _Sylvestre de Sacy, Lettre au sujêt de l'Inscription Egyptienne du monument trouvé à Rosette p. 22. ss., behauptet, auf der Inschrift werde Hephästos von Phthas unterschieden, dieser Name sei nicht dem Vulcan eigen, sondern Name aller Götter (oder doch gewiß mehrerer); und wenn nach der Bemerkung desselben scharfsinnigen Gelehrten das am Ende nicht zum altägyptischen Wort gehört und der wahre Name, wie in der griechischen Inschrift, [GREEK] lautete: so dürfte sich statt der mißlungenen ägyptischen Etymologieen von Jablonski und La Croze vielleicht eine hebräische anbieten. Nach derselben wäre [GREEK] der Eröffner ([HEBREW]), eine Bedeutung, die mit allen seinen Eigenschaften übereinstimmen würde. Dieses nun auch darum, weil Zoega u. a. in Axieros diesen vermeinten höchsten Gott des ägyptischen Systems sehen wollten! Dem sei, wie ihm wolle, auf Feuer bezieht sich der Name [GREEK] und so hat wohl Bochart _G. S. 50. 2. c. 2._ ganz richtig in's Phönicische zurück übersetzt; nach ihm ist _Chrysor_ [HEBREW]. Da aber [HEBREW] im Sinn von _fabricare_ transitive Bedeutung hat und das eigentliche Wort für Bearbeitung von Metallen ist (_Genes. 4, 22._), so würde [HEBREW] kaum etwas anderes bedeuten können, als der das Feuer selbst hämmert. Wahrscheinlicher also, daß das Wort in diesem Namen seine andre Bedeutung, des Beschwörens, hat. Aber auch so den Namen recht zu verstehen, würde eine Kenntniß erfordert, der geheimeren, auch den Hebräern bekannten, Feuerlehre. Das Wort _Ur_ (wovon unser Ur in Ur-Bild u. ähnl.) ist durchaus verborgeneren Sinns; es ist nicht das äußere Feuer (das [HEBREW] heißt), sondern das innere, gleichsam was im Feuer das Feuer ist: in solchem Verhältniß stehen [HEBREW] und [HEBREW] zusammen _Es. 50, 2._ Doch kann, das Wort im angegebnen Sinn genommen, [HEBREW] kaum etwas andres heißen, als Feuer-Beschwörer, Besänftiger, _incantator ignis_. Die transitive Bedeutung des Worts in diesem Sinn ist zwar durch keine mir bekannte Stelle erweislich, aber [HEBREW], welches nach der in den morgenländischen Sprachen so häufigen _Metathesis_ dasselbe mit [HEBREW] ist, hat wenigstens im arabischen [ARABIC] transitive Bedeutung im Sinn von _incantare_. So in _Geogr. Nub._ bei _Bochart. Hieroz. 2. 386._ [ARABIC] _incantant animalia noxia_; vgl. die von _Castell. Lex. heptagl. 2. 1508._ angef. Stellen des Koran. Dann wäre ja jener _Chores-Ur, Chrysor_ oder _Kersor_ auch dem Namen nach gleichbedeutend mit dem _Oser-Es, Osiris_; ein Name, dem man nach so vielen meist auf höchst allgemeine Begriffe hinauslaufenden Erklärungen sehr geneigt sein könnte, für [HEBREW] oder nach der wahrscheinlich älteren Schreibung [HEBREW] Feuer-Bändiger, Feuer-Beschwörer zu erklären. Denn die morgenländischen Wörter, die _sign. ligandi_, haben meist auch _sign. incantandi_; wegen [HEBREW] s. _Targ. Jon. Deut. 18, 2._, wo [HEBREW] durch [HEBREW] übersetzt wird. Dieser Erklärung des Osiris-Namens kommt die bekannte von Barthelemy sinnreich erklärte phönicisch-griechische Inschrift von Maltha gewißermaßen zu Statten. S. die Abbildung _Pl. 1. p. 424._ in _Mém. de l'Ac. des 1. T. 30._ Dort entspricht _lin. 2._ dem griechischen [GREEK] das phönic. [HEBREW], Diener Asars, ohngefähr wie auf dem von Akerblad, _Comm. Gott. Vol. 14._, bekannt gemachten Stein Heliodorus durch Diener der Sonne ausgedrückt ist. Von der andern Seite wird ein Teil der Erklärung durch sie zweifelhaft, da _Osiris_ blos als _Oser_ genommen und is als griechische Endigung behandelt ist. Eine andre phönicische Inschrift, die des Basreliefs von Carpentres, enthält dreimal den Namen Osiris und zwar jedesmal [HEBREW] _Oseri, cum Jod quasi gentilitio_, wie in dem hier ganz analogen [HEBREW]; daß [HEBREW] geschrieben sei, ist bloßes Vorgeben von Hug, über den Mythus der alten Welt S. 62. Anm., die Inschrift und _Barthelemy, Mém. de l'Ac. d. Inscr. 32. p. 728._ weiß nichts davon. Auch diese Inschrift führt daher auf Oser zurück und schneidet nur die Möglichkeit ab, auch etwa [HEBREW] zu lesen, was einerlei Form wäre mit _Kabir_. Nehmen wir also _Oser, Oseri_ als das richtige an, so hindert nichts, dieß Wort auch so, schlechthin gesetzt, durch Beschwörer, Bezauberer zu erklären, zumal das hinzudenkliche Hauptwort wieder von derselben Wurzel und der vollständige Ausdruck [HEBREW] sein könnte, _ligans ligationem_ (das letzte Wort im Sinn des griech. [GREEK]), wie [HEBREW] _Deut. 18, 11._, welches die samaritanische Übersetzung wirklich durch [HEBREW] ausdrückt. Und wenn jemand damit das Etruscische _Aesar_ in Verbindung setzt, "_quod AESAR Etrusca lingua Deus vocaretur_" _Sueton. in Oct. p. 229. Wolf._, könnte man's aber auch nicht unbedingt tadeln. So möchte man sich denn auch für [GREEK] mit dem einfachen [HEBREW] begnügen. Er wäre fast wörtlich jener _Cerus manus_ Anm. 31. oder _Creator bonus_; [HEBREW] bliebe in seiner gewöhnlichen Bedeutung als _fabricator_ (Demiurg), die indeß den Begriff von _magus_ nicht ausschließt, so wenig [HEBREW] in der Bedeutung von _mago, præstigiatrix_ den von _fabricatrix_ (_rerum natura, Lactant. Epit. 68._) ausschließt. Eine Frage ist, wie weit man das Ansehn der beiden Inschriften gelten läßt. Bei der von Maltha würde etwas auch darauf ankommen, ob es eingeborne Tyrier sind, deren Namen in's Griechische, oder geborne Griechen, deren Namen in's Phönicische übersetzt worden. Verschiedne Umstände sprechen für das Erste. Dann wär' es eigentlich mir der griechische Übersetzer, der den Namen _Abdasar_ durch [GREEK] erklärt hätte. Andre Bewandniß hat es mit der von Carpentres, dort ist _Oseri_ als Name des Gottes Osiris nicht zu verkennen, das Basrelief selbst enthält ägyptische Vorstellungen, unter diesen den Osiris. Seine Herkunft, ob aus Aegypten selbst oder aus irgend einer der phönicischen Niederlassungen, ist unbekannt, wie sein Alter. Aus welcher Zeit es aber sei, beweist es doch mir, daß man damals den Osiris-Namen durch Oseri vollkommen ausdrücken zu können meinte. Wird nun dieser Schreibung Urkundlichkeit zugestanden, so weiß man ebendieselbe auch für die Ableitung von [HEBREW] zu geben, und so wäre _Oser_ oder _Oseri_ doch nur der kürzere Name; [GREEK] und [GREEK] der vollständigere. Denn was die Wahrscheinlichkeit der zuerst gegebnen Erklärung noch erhält, ist ein anderer aus der Kosmogonie des Phönicier Mochos angeführten Namen, [GREEK], den entweder dieser selbst oder doch Damascius als den ersten Eröffner, [GREEK] erklärt, _Wolf anecd. gr. 3. 260._ Hier hätten wir also zum drittenmal jenes bedeutende _Or_; der seltsamste Zufall müßte walten, wenn nur zufälliger Weise dieses Wort auch wieder den Feuer-Bändiger bedeutete, von dem chald. [HEBREW], eigentlich _propitium, clementem esse_, wovon [HEBREW], dessen sich die chaldäische Übersetzung für das hebräische [HEBREW] bedient, in der bedeutenden Stelle _Jer. 4, 4._ "daß nicht mein Zorn entbrenne und kein Besänftiger sei" [HEBREW], und in demselben Sinn _Jer. 7, 20. Es. 1, 30._ Vgl. _Buxtorf. lex. chald. talm. p. 721._ Noch seltsamer wenn sich zu diesem [GREEK], endlich noch Dionysos selbst, mit der gleichen Bedeutung gesellte! Doch davon jetzt nicht! Creuzer 4. 75. Anm. hat schon den [GREEK] mit dem [GREEK] zusammenzubringen gesucht, so wie mit dem hesiodischen Chrysaon und dem _Adj._ [GREEK], das als Beiwort der Ceres _Hymn. v. 4._ auf keinen Fall so schnell als von _Ruhnkenius_ u. a. verworfen werden sollte und auch von Wolf beibehalten ist. Weder der Ceres, noch (was häufiger) dem Apollo, _Il. 5, 509. 15, 256._, der so viel mit Dionysos gemein hat, noch dem Orpheus (bei Pindar in _Villois. Schol. ad 50. Il. prox. cit._) will es nach der aus griechischer Etymologie genommenen Erklärung "der mit goldenem Schwert" recht zusagen. Es ist eines der alten Wörter, die an die Griechen ohne Kenntniß ihres wahren Sinns gekommen waren, und wurde nur in Folge von Überlieferung mit gewißen Gottheiten verbunden. Doch genug der sprachlichen Untersuchungen, um endlich zu fragen, wie denn Dionysos oder Osiris Feuerbeschwörer, Feuerbesänftiger heißen könne, und wie damit der Begriff eines ersten Eröffners zusammenhange? Statt jeder tiefer eingehenden philosophischen Erläuterung stehe hier der uralte Lehrsatz: "[GREEK] (_Euseb._ [GREEK]) [GREEK]" _Heracl. ap. Clem. Alex. Strom. 5. p. 711. ed. Pottos._ "Die Welt ein ewig lebendes Feuer, das in Pausen (so erkläre ich [GREEK] _subirt._ [GREEK]) entbrennt und gelöscht wird." Eine Kraft also, die es entzündet (das ist Ceres, Isis, Persephone oder wie man sonst die erste Natur nenne), eine, die es löscht (vgl. Anm. 66.), besänftiget und dadurch erster Eröffner der Natur wird, sie in mildes Leben und sanfte Leiblichkeit aufschließend, diese ist Osiris oder Dionysos. [GREEK] sagten Heraklit und Hippasus (_Plut. de pl. phil. Opp. 4. 355. Euseb. pr. ev. p. 749._), darum war auch Dionysos (Anm. 80.) Demiurg.
 
-### 0074
-
-( 67 )--
-(64) Es versteht sich, daß das Letzte unsere Mey-
-nung ist. Axiokersa und Axiokersos erbauen zusammen
-das Weltall durch einen doppelten Zauber, da der spä-
-tere den frühern nicht aufhebt oder vernichtet, sondern
-überwindet. Dem wäre so, auch wenn der Name blos
-den allgemeinen Begriff des Zauberers ausdrückte. Doch
-ist zu vermuten, nicht Kersos, sondern Kersor sei das
-ursprüngliche, wie Amilcar im Griechischen, 'Aec
-lautet und Barthélemy, Reflexions sur quelques
-monumens Phéniciens (Mém. de l'Ac. des Inscr.
-T. XXX. pag. 410. bemerkt: Les Grecs paroissent
-avoir terminé en os les noms phéniciens, qui ter-
-minoient en e, par la meme raison, que les mots
-Lacedémoniens terminés en e, avoient chez les
-autres peuples de la Grece une terminaison en oc,
-Te, Tgeoc, Medoop, Mejocc etc. Der Name
-eog aber, oder Kepop, würde an den Aoo des
-Sanchuniathon erinnern, von dem gesagt wird, er sei
-der Hephästos, Euseb. Pr. ev. L. I. p. 35. C. Das
-Letzte nun dürfte nicht irren. Denn die ersten Kabiren
-alle sind Hephäste (s. §. 12. des Textes und die dazu
-gehörigen Anm.). Überdieß wird hinzugesetzt, d-
-ccec (r Xoop) gdac zc rel, wodurch er
-wieder zum Zauberer wird und Eigenschaften erhält, die
-dem gewöhnlich sogenannten Hephästos nicht zukommen.
-Daß er dennoch durch Hephästos erklärt wird, zeigt auf
-die wahre Bedeutung. Er ist der Feuer-Gott, denn auf
-jeden Fall hat er mit Feuer zu tun. Er heißt Hephä-
-sios, wie der ägyptische Phthas, auch bei Eusebius,
-
-
-### 0075
-
-- ( 68 )-
-III. 11. p. 115. und bei Suidas, T. III. p. 615. v0c.
-de, für Vulcan ausgegeben wird, obgleich derselbe
-Suidas, voc.'A. T. I. p. 396., richtiger und un-
-streitig aus irgend einer alten Quelle sagt: Ae.0
-oooc. 7 ercde . -- - 9 rgozlO'Acig
-0 e d. o0c. Auch er (Phthas) ist
-nur Hephästos in wiefern das männliche, oder eröffnende,
-aufschließende Feuer. Um so mehr Aufmerksamkeit ver-
-dient, auch nach Akerblads Widerspruch, was Sylves-
-tre de Sacy, Lettre au sujét de lInscription Egy-
-ptienne du monument trouvé a Rosette p. 22. s.,
-behauptet, auf der Inschrift werde Hephästos von Phthas
-unterschieden, dieser Name sei nicht dem Vulcan eigen,
-sondern Name aller Götter (oder doch gewiß mehrerer);
-und wenn nach der Bemerkung desselben scharfsinnigen
-Gelehrten das am Ende nicht zum altägyptischen Wort
-gehört und der wahre Name, wie in der griechischen In-
-schrift, O0A lautete: so dürfte sich statt der mißlungenen
-ägyptischen Etymologieen von Iablonski und La Croze
-vielleicht eine hebräische anbieten. Nach derselben wäre
-c8 der Eröffner (nd), eine Bedeutung, die mit al-
-len seinen Eigenschaften übereinstimmen würde. Dieses
-nun auch darum, weil Zoega u. a. in Axieros diesen ver-
-meynten höchsten Gott des ägyptischen Systems sehen
-wollten! Dem sei, wie ihm wolle, auf Feuer bezieht sich
-der Name Xooca und so hat wohl Bochart G. S. L. II.
-c. 2. ganz richtig in's Phönicische zurück übersetzt; nach
-ihm ist Chrysor ar. Da aber r im Sinn
-von fabricare trausitive Bedeutung hat und das eigentli-
-
-
-### 0076
-
-( 69 ) -
-che Wort für Bearbeitung von Metallen ist (Gencs. 4.
-22), so würde e f kaum etwas anderes bedeu-
-ten können, als der das Feuer selbst hämmert. Wahr-
-scheinlicher also, daß das Wort in diesem Namen seine
-andre Bedeutung, des Beschwörens, hat. Aber auch
-so den Namen recht zu berstehen, würde eine Kenntniß
-ersordert, der geheimeren, auch den Hebräern bekannten,
-Feuerlehre. Das Wort Ur (wovon unser Ur in Ur-
-Bild u. ähnl.) ist durchaus verborgeneren Sinns; es ist
-nicht das äußere Feuer (das v heißt), sondern das
-innere, gleichsam was im Feuer das Feuer ist: in sol-
-chem Verhältniß stehen 1 und Sd zusammen Es. 50,
-11. Doch kann, das Wort im angegebnen Sinn ge-
-nommen, n kaum etwas andres heißen, als
-Feuer-Beschwörer, Besänftiger, incantator ignis. Dis
-transitive Bedeutung des Worts in diesem Sinn ist zwar
-durch keine mir bekannte Stelle erweislich, aber r,
-welches nach der in den morgenländischen Sprachen so
-häufigen Metathesis dasselbe mit r ist, hat wenlg-
-stens im arabischen , transitive Bedeutung im Sinn
-von incantare. So in Geogr. Nub. bei Bochart. Hi-
-eroz. II. 386. ,, ,1 incantant
-animalia novia; vgl. die von Castéll. Lex. heptagl.
-II. 1508. angef. Stellen des Koran. Dann wäre ja
-jener Chores-Or, Chrysor oder Kersor auch dem
-Namen nach gleichbedeutend mit dem Oser-Es, Osiris;
-ein Name, dem man nach so vielen meist auf höchst all-
-gemeine Begriffe hinauslaufenden Erklärungen sehr ge-
-neigt sein könnte, für dd 0d oder nach der wahrschein-
-
-
-### 0077
-
--( 70 )-
-lich älteren Schreibung e 0 Feuer-Bändiger,
-Feuer-Beschwörer zu erklären. Denn die morgenländi-
-schen Wörter, die sign. ligandi, haben meist auch sign.
-incantandi; wegen od s. Targ. Jon. Deut. 18, 11.,
-wo i durch sn f f12 übersetzt wird.
-Dieser Erklärung des Osiris-Namens kommt die be-
-kannte von Barthelemy sinnreich erklärte phönicisch-grie-
-chische Inschrift von Maltha gewißermaßen zu Statten.
-S. die Abbildung PI. I. p. 424. in Mém. de lAc. des
-I. T. XXX. Dort entspricht lin. 2. dem griechischen
-onios das phönic. d 2, Diener Asars, ohnge-
-fähr wie auf dem von Akerblad, Comm. Gott. Vol. XIV.,
-bekannt gemachten Stein Heliodorus durch Diener der
-Sonne ausgedrückt ist. Von der andern Seite wird ein
-Teil der Erklärung durch sie zweifelhaft, da Osiris blos
-als Oser genommen und is als griechische Endigung be-
-handelt ist. Eine andre phönicische Inschrift, die des
-Basreliefs von Carpentres, enthält dreimal den Namen
-Osiris und zwar jedesmal Oseri, cum Jod qua-
-si gentilitio, wie in dem hier ganz analogen j; daß
-00d geschrieben sei, ist bloßes Vorgeben von Hug,
-über den Mythus der alten Welt S. 62. Anm., die
-Inschrift und Barthelemy, Mém. de l'Ac. d. Inser.
-XXXII. p. 728. weiß nichts davon. Auch diese In-
-schrift führt daher auf Oser zurück und schneidet nur die
-Möglichkeit ab, auch etwa 0d zu lesen, was einerley
-Form wäre mit Kabir. Nehmen wir also Oser, Oseri
-als das richtige an, so hindert nichts, dieß Wort auch
-so, schlechthin gesetzt, durch Beschwörer, Bezauberer zu
-
-
-### 0078
-
-- r7r---
-erklären, zumal das hinzudenkliche Hauptwort wieder von
-derselben Wurzel und der vollständige Ausdruck d
-0de sein könnte, ligans ligationem (das letzte Wort
-im Sinn des griech. "atezoc), wie a oi Deut.
-18, 11., welches die samaritanische Übersetzung wirklich
-durch 0 0 ausdrückt. Und wenn jemand damit
-das Etruscische Aesar in Verbindung setzt, "quod A E-
-SAR Etrusca lingua Deus vocaretur' Sueton. in
-Oct. p. 229. Volf., könnte man's aber auch nicht un-
-bedingt tadeln. So möchte man sich denn auch für A-
-"4ooc mit dem einfachen n begnügen. Er wäre fast
-wörtlich jener Cerus manus Anm. 31. oder Creator
-bonus; ar bliebe in seiner gewöhnlichen Bedeutung
-als fabricator (Demiurg), die indeß den Begriff von
-magus nicht ausschließt, so wenig in der Bedeu-
-tung von mago, prastigiatrix den von fabricatrix (re-
-rum natura, Lactant. Epit. 68.) ausschließt. Eine
-Frage ist, wie weit man das Ansehn der beiden Inschrif-
-ten gelten läßt. Bei der von Maltha würde etwas auch
-darauf ankommen, ob es eingeborne Tyrier sind, deren
-Namen in's Griechische, oder geborne Griechen, deren
-Namen in's Phönicische übersetzt worden. Verschiedne
-Umstände sprechen für das Erste. Dann wär' es cigent-
-lich mir der griechische Übersetzer, der den Namen Ab-
-dasar durch Ao-oc erklärt hätte. Andre Bewandniß
-hat es mit der von Carpentres, dort ist Oseri als Na-
-me des Gottes Osiris nicht zu verkennen, das Basrelief
-selbst enthält ägyptische Vorstellungen, unter diesen den
-Osiris. Seine Herkunft, ob aus Aegypten selbst oder
-
-
-### 0079
-
--( 72)-
-aus irgend einer der phönicischen Niederlassungen, ist un-
-bekannt, wie sein Alter. Aus welcher Zeit es aber sei,
-beweist es doch mir, daß man damals den Osiris-Na-
-men durch Oseri vollkommen ausdrücken zu können meyn-
-te. Wird nun dieser Schreibung Urkundlichkeit zugestan-
-den, so weiß man ebendieselbe auch für die Ableitung von
-d zu geben, und so wäre Oser oder Oseri doch nur
-der kürzere Name; Xoooc und kepag der vollständigere.
-Denn was die Wahrscheinlichkeit der zuerst gegebnen Er-
-klärung noch erhält, ist ein anderer aus der Kosmogonie
-des Phönicier Mochos angeführten Namen, Xeppc,
-den entweder dieser selbst oder doch Damascius als den
-ersten Eröffner, aa p0 erklärt, Volf
-anecd. gr. III. 260. Hier hätten wir also zum dritten-
-mal jenes bedeutende Or; der seltsamste Zufall müßte
-walten, wenn nur zufälliger Weise dieses Wort auch
-wieder den Feuer-Bändiger bedeutete, von dem chald.
-O, eigentlich propitium, clementem esse, wovon
-dd, dessen sich die chaldäische Übersetzung für das he-
-bräische I2 bedient, in der bedeutenden Stelle Jer.
-4, 4. ,daß nicht mein Zorn entbrenne und kein Besänfti-
-ger sei d, und in demselben Sinn Jer.
-7, 20. Es. 1, 30. Vgl. Buxtorf. lex. chald. talm.
-p. 721. Noch seltsamer wenn sich zu diesem Xa,
-Keoo Xe, endlich noch Dionysos selbst, mit der glei-
-chen Bedeutung gesellte! Doch davon jetzt nicht! Crenzer
-IV. 75. Anm. hat schon den Xepdc mit dem Xoa zusam-
-menzubringen gesucht, so wie mit dem hesiodischen Chry-
-saon und dem Adj. eepoc, das als Beiwort der Ce-
-
-
-### 0080
-
--- ( 73 ) --
-res Hymn. v. 4. auf keinen Fall so schnell als von Ruhn-
-kenius u. a. verworfen werden sollte und auch von Wolf
-beibehalten ist. Weder der Ceres, noch (was häufiger)
-dem Apollo, I1. v, 509. v, 256., der so viel mit
-Dionysos gemein hat, noch dem Orpheus (bei Pindar
-in Villois. Schol. ad L. II. prox. cit.) will es nach der
-aus griechischer Etymologie genommenen Erklärung ,der
-mit goldenem Schwert" recht zusagen. Es ist eines der
-alten Wörter, die an die Griechen ohne Kenntniß ihres
-wahren Sinns gekommen waren, und wurde nur in Fol-
-ge von Überlieferung mit gewißen Gottheiten verbunden.
-Doch genug der sprachlichen Untersuchungen, um endlich
-zu fragen, wie denn Dionysos oder Osiris Feuerbeschwö-
-rer, Feuerbesänftiger heißen könne, und wie damit der
-Begriff eines ersten Eröffners zusammenhange? Statt
-jeder tiefer eingehenden philosophischen Erläuterung stehe
-hier der uralte Lehrsatz: ozoc - --- e-oo,
-rrreo 0ure (Euseb. e7) g oBevpeozerp'
-Heracl. ap. Clem. Alex. Strom. V. p. 711. ed. Pottos.
-"Die Welt ein ewig lebendes Fener, das in Pausen (so
-erkläre ich g- subirt. zra) entbrennt und gelöscht
-wird." Eine Kraft also, die es entzündet (das ist Ce-
-res, Isis, Persephone oder wie man sonst die erste Na-
-tur nenne), eine, die es löscht (vgl. Anm. 66.), besänf-
-tiget und dadurch erster Eröffner der Natur wird, sie in
-mildes Leben und sanfte Leiblichkeit aufschließend, diese
-ist Osiris oder Dionysos. T r z0-
-r ra sagten Heraklit und Hippasus (Plut.
-
-
-### 0081
-
-- 74) -
-de pl. phil. Opp. IV. 355. Euseb. pr. ev. p. 749),
-darum war auch Dionysos (Anm. 80.) Demiurg.
-(65) Espre, eore heißt Osiris bei Plut.
-p. 317. Derselbe c. 42 sagt, Osiris bedeute zwar sehr
-vieles, aber doch vorzüglich "peec eösoer (nach Mark-
-land's Verbess.) z aer2.
-(66) Id. c. 33. Sanchuniathon bei Euseb. p. 30.
-sagt: "ceid rd g, zdo-, welches Crenzer IV.
-75. durch Jovem penetralem erklärt. Hellanicus woll-
-te den Namen alsTop- gehört haben; von der Befeuch-
-tung, und Hyes, sei Dionysos genannt worden, ac "ö-
-o s e e oeec, sagt Plut. c. 34. Eben dieses
-Amt des Feuer-Löschenden übt er auch im andern Leben.
-Daher jener fromme Wunsch auf Grabmälern: Osiris ge-
-be dir das kühle Wasser! Vgl. Luc. 16, 24. Auch dort
-ist er der beseligende Gott, weil durch ihn das Feuer je-
-ner unauslöschlichen Sucht gestillt wird, mit dem die See-
-len der Ungeweihten erfüllt sind.
-(67) Sainte-Croix p. 27. 28. une quatrieme
-divinité Cadmillus prit encore place parmi elles,
-mais il n'eut que le ee 7g. Noch besser, ein
-andrer in den Mem. de l'Ac. des Iusc. T. XXVII.
-p. 14. qui nétoit elye, qu a exécuter les ordres
-des trois autres. Creuzer, da ihm Axieros die höchste
-Gottheit ist, muß im Ganzen damit einstimmen, doch
-sucht er II. 297. ff. andre Verkuüpfungen, deren Absicht
-fast scheint dem Kadmilos eine andre Bedeutung als die
-des Hermes zu verschaffen (vgl. S. 317.), welches auch
-wohl sein müßte, wenn er der den drei andern unter-
-geordncte sein sollte.
-
-
-### 0082
-
-- ( 75) --
-(68) Hymn. in Cer. 336.
-(69) Casmillus nominatur in Samothraces my-
-steriis Dius quidam administer Diis magneis. De
-lingu. lat. L. VI. p. 88. ed. Bip.
-(70) - -- -- -- Superis Deorun1
-Gratus et imis.
-orat. Od. I. 10. extr.
-(71) Ganz unnöthig ist Bocharts Erklärung G. S.
-L. I. p. 395. aus dn und der vom Arabischen herge-
-holten Bedeutung ministrare. Kae ist ganz einfach
-7 von Dp, prior, antecedens. Der Name
-Kadmiel, eben so geschrieben, kommt in denspäteren
-Büchern des A. T. und zwär als Name eines Priesters,
-eines Leviten vor. S. Esr. 2, 40. 3, 9. Neh. 7, 43.
-al. Sicher bedeutet er nicht, wie gewöhnlich erklärt wird
-(s. Simonis p. 509., denn Hiller. Onom. Sacr. mußte
-zch leider bei dieser ganzen Arbeit enrbehren), quem
-Deus beneficiis preevenit, sondern einen, der ,vor
-Gott steht (denn so wird der Begriff von ministrare
-ausgedrückt, z. B. Gen. 18, 8., wo Abraham als ein
-wahrer Camillus vor den drei Männern sieht, vergl.
-Neh. 12, 44. Jer. 52, 12. und das röm. pemini-
-ster (Deorum Macr. Sat. I. 8.), welches denselben Ne-
-benbegriff ausdrückt), oder einen, der "Herold, Bote,
-Verkünder Gottes ist," (wovon in der folg. Anm.) oder
-"der das Angesicht Gottes sieht," denn mit dieser Re-
-densart würden Ministri (auch der Könige) allgemein
-bezeichnet. Vgl. die selbst für die Etymologie des Worts
-nicht unwichtige Stelle Esth. 1, 10. Die chaldäische Ue-
-bersetzung des A. T. befleißiget sich 2' 2 zu sagen,
-
-
-### 0083
-
-- ( 76) --
-wo im Hebräischen blos steht 7. S. Buxt. Lex-)
-p. 19. 70. Selbst die etruscische Zusammenziehung (Ca- l
-millus) ist hebräisch und besonders dem hierosolymitani-
-schen Dialect des Chaldäischen eigen. Dort wird allge,
-mein für 2p und np blos d, und 0p gebraucht, s
-s. Buxt. p. 1971. Hebräisch ist die Zusammenziehung,
-denn sie findet sich im Namen Kemiel Gen. 22, 21.
-1 Par. 27, 17., der gewiß unrecht durch grex Dei (Sim.
-p 509) erklärt wird, er ist statt Kemiel, wie Genes.
-32, 30. 31. Peniel und Penuel unmittelbar hinter einan-
-der verwechselt werden, und dieses statt Kadmiel.
-(72) Der d2 Es. 63. 9., auch 7
-r schlechthin Eod. 23, 20. s9. Eine ausführliche
-Erklärung dieses Begriffs findet sich im 1sten Teil der
-Weltalter. Wen muß es nicht verwundern, dieses Ver-
-hältniß durch die ganze heilige Geschichte beobachtet zu se-
-hen, wie wenn Aaron Mosis Mund, also recht eigent-
-lich sein Mercur (vvoe r Act. 14, 12.) wird,
-Christo Iohannes vorangeht, ihm den Weg bahnend, da-
-her von einem Kirchenvater (Tertull. de orat. 1.), der
-wahrscheinlich auf den Begriff des Camillus (s. Anm. 71.)
-anspielt, preminister domini genannt. Was im A.
-. der Engel des Angesichts, was in den griechischen Ge-
-heimlehren der Kadmilos, in etruscischer Religion Her-
-mes-Camillus ist, das ist der späteren jüdischen Philoso-
-phie der Metatron, ein sonderbarer Name, von dem
-vielleicht bei andrer Gelegenheit! Er ist der vornehmste
-Engel und eben so erhaben über alle Engel, d. h. alle
-Naturen, die nur Boten, Werkzeuge der höchsten Gott-
-
-
-### 0084
-
----f 7 7) ----
-heit sind, als nach unserer Ansicht der Kadmilos über die
-ersten Kabiren. Er heißt auch der Bote, der Gesandte,
-r7, Eisenmengers entdecktes Iudenthum Th. II. S.
-395., er ist auch der "Fürst des Angesichts, der im-
-mer das Angesicht sieht des gebenedeyeten Königs, das.
-S. 396. Von demselben sagen sie, er sei s, und ,
-zugleich alt und jung, er ist alt, als einer, der auffährt
-über die Himmel zum Thron der Herrlichkeit, jung,
-wenn er in die Welt der Formirung zurückkommt, d. h.
-Dienste als Camillus verrichtet, ebend. S. 397. Der
-etruscische Camillus war bekanntlich ein Knabe. "Der
-" Metatron, sagt ein jüdisches Buch, wird Naar, d. i.
-ein Knabe genannt, weil er vor der Schechinah (der gött-
-lichen Majestät) eines Knaben Dienste versieht," ebend.
-Die Etrusker haben ihre Vorstellung nicht von diesen
-späteren Iuden, diese die ihrige eben so wenig von den
-Etruskern. Die gemeinschaftliche Quelle ist Prov. 8, 30.,
-wenn man sde richtig übersetzt; so wie ebendas. v. 22.
-Der Grund liegt vom Metatron als ,Anfang der Wege
-Gottes, Eisenm. l. c., und von Hermes als Gott der
-l Wege.
-(73) Nicht blos interpres, sondern augur quasi,
-divinator Dei. Es. 3. 2. steht 20p neben 2d. Ist
-es wahr, wie erzählt wird (Plut. pl. phil. L. II. in.),
-daß Pythagoras zuerst den Inbegriff aller Dinge "ao-
-genannt, so sieht es zweidentig aus um die gewöhnliche
-Erklärung dieses Worts. Nach der Urlehre, aus deren
-Quellen Pythagoras schöpfte, ist die ganze Welt nur ein
-Kesem. ein aueurium Dei. Ich bemerke, daß Kas-
-
-
-### 0085
-
--( 78) -
-milos auch wohl noch in anderer Beziehung augur Dei
-heißen kann; doch dieß ist tieferer Erforschung, und das
-Verhältniß des vorangehenden bleibt dabei dasselbe. Die
-Herleitung von Kasmilos aus 7os gibt schon Bo-
-chart, Hieroz. II. 36. Wenn aber Münter in der an-
-gef. Abh. für die phönicische Erklärung von Kasmilos,
-dagegen für die ägyptische Erklärung der drei ersten Gott-
-heiten spricht, so wäre unstreitig folgerichtiger zu schließen,
-daß weil Kadmilos, Kasmilos, Camillus unwidersprech-
-lich und unbestreitbar hebräische Wörter sind, die andern,
-derselben Lehre und demselben Geheimdienst angehörigen,
-auch aus dieser Sprache sein müssen. Freilich meynt
-Münter, aber ohne allen Grund, die drei ersten Kabi-
-ren seien aus Aegypten gekommen, der vierte erst von
-den Phöniciern eingeführt worden. Sainte-Croix da-
-gegen hält grade den Kadmilos für ägyptisch. Bemer,
-kenswerth ist noch, daß von allen griechischen Völker-
-schaften grade die Böotier den Hermes Kadmilos nann-
-ten, dieselbe Völkerschaft, unter der (s. Larcher zu
-Herod. II. 49.) die Nachkommen des Tyriers Kadmos
-und der Phönicier lebten, die dorthin mit ihm gekom-
-men waren. Auch blos Kadmos heißt oft der Kadmilos.
-(74) So erklärt sich Creuzer, Symb. und Myth.
-11. 333. Es scheint diesem ausgezeichneten Werk über-
-haupt nicht vorteilhaft zu sein, daß zufolge einer sehr
-particularen philosophischen Ansicht, die man am Ende
-des 4ten Teils entwickelt findet und die dem Christen-
-thum, wie dem Alterthum, nur gewaltthätig aufzudrin-
-aen ist, allen Erklärungen die Emanations-Theorie zu
-
-
-### 0086
-
-- ( 79 ) -
-Grunde gelegt worden. Indeß kann diese Ansicht als
-etwas Fremdartiges rein abgeschieden werden von dem
-Werk, dessen unschätzbares Verdienst, durch höhere Ideen
-im Verein mit umfassender Gelehrsamkeit den Weg für
-eine tiefere Erkenntniß der ganzen Mythologie gebrochen
-zu haben, dadurch unangetastet bleibt. Insbesondre hal-
-te ich für recht, hier zu erwähnen, was eigentlich früher
-hätte erwähnt werden sollen, daß Creuzer durch das
-Licht, in welches er die Ceres- und Proserpina-Lehre
-gesetzt, die ersten Mittel zu der Ansicht gegeben, die in
-gegenwärtiger Abhandlung entwickelt wird. Er hat,
-besonders IV. §. 39., unwiderleglich dargethan, daß
-Ceres das erste der Wesen ist, und dieser Lehrsatz, recht
-verstanden, das erste Wesen nämlich nicht mit Creuzer
-zugleich für das oberste, sondern als das allem zu Grun-
-de liegende genommen, ist das Fundament, auf welchem
-dieses Erklärungssystem ruht. Wenn daher derselbe
-geistvolle Gelehrte in Erklärung der samothracischen Ge-
-heimnisse Zoega nachgibt, und mit ihm Axieros für die
-höchste Gottheit des ägyptischen Systems hält, so streitet
-dieß gegen die Analogie der von ihm selbst anderwärts
-aufgestellten mythologischen Grundsätze.
-(75) Daher auch die Einschränkung a. a. . ,Die-
-ses Hervorgehen und Zurückkehren aus Einem Wesen
-und in dasselbe ward ohne Zweifel dem Gebildeteren
-als Grundlehre vorzutragen, die freilich der rohe Pe-
-lasger nicht zu fassen im Stande war. Ihm gab man
-dafür eine Reihe von Sterngöttern und ihnen entsprechen-
-
-
-### 0087
-
-- ( 80) -
-de Baethylien, Idole von der Sternenkraft influirt und
-magisch wirksam u. s. w."
-(76) Creuzer II. 321.
-(77) Der mögliche Einwurf, daß Dionysos als hö-
-herer Demiurg dem Hephästos entgegengesetzt wird (Creu-
-zer III. 414.) und doch nach obiger Ansicht selbst ein
-Hephästos ist, wird sich durch Anm. 80. erledigen.
-(78) Creuzer am eben angef. O.
-(79) Te scise Spac. Ebenders. ebendas. aus
-Procl. in Plat. Theol. VI, 22.
-(80) Aber auch Dionysos ist Demiurg und zwar der
-den Hephästos gewißermaßen überwindende Demiurg,
-der die Schöpfung aus den Banden der Notwendigkeit
-erlöst und in freie Mannichfaltigkeit aus einander setzt.
-Dieser scheinbare Widerspruch löst sich schon durch die
-allgemeine Bemerkung, daß ein Wesen oder Princip,
-das höher steht als ein andres und in sofern sein Gegen-
-satz (sein Überwindendes) ist, dennoch gegen ein noch
-höheres mit jenem zu Einer Gattung gehören kann. Für
-Solche, die aus Andeutungen ein Ganzes verstehen, sei
-Folgendes! Auch Zeus ist wieder Dionysos, wie ja auch
-mitunter ausdrücklich gelehrt wurde. (S. die Anführnn-
-gen von Creuzer III. 397. vgl. mit 416.) Nämlich Zeus
-verhält sich zu den drei ersten Potenzen wieder, wie sich
-die zweite zu der ersten verhält. Ich sage zu den drei
-ersten, obschon wir bisher vier zählten. Denn tiefer an-
-gesehen ist Ceres keine arithmetische Zahl. Sie ist die
-Mutter der Zahlen, die intelligible Dyas, mit der nach
-Pythagoreer-Lehre die Monas aller wirklichen Zahlen
-
-
-### 0088
-
-I1
-.V.
-( 81) -
-erzeugt. Persephone ist die erste Zahl (rooc), die
-arithmetische Eins. Also Zeus verhält sich zu 1. 2. 3.
-wieder wie sich 2 zu 1 verhält und umgekehrt 2 verhält
-sich zu 1 nicht anders, als sich 4 zu 1. 2. 3. verhält. Des
-Zeus Zahl ist immer die vierte Zahl. Außerdem aber
-kehrt Dionysos noch einmal in höherer Potenz zurück.
-Axiokersos ist Dionysos in der tiefsten Potenz.
-(81)'Eo s ro zar' 'Eeo-
-avrg eg soa uespv ioeoigera -- --- - a
-Ipo o Fos. Eus. pr. ev. III. p. 117. Auch Sa-
-mothrace hatte seinen Hierophanten. Er hieß Köne, oomc.
-Bochart, G. S. p. 397. leitet es, nicht eben unwahr-
-scheinlich, von sd ab. Da indeß der Hierophant von
-Eleusis auch IIojrne hieß (von reer zao o-
-fra wird auch Euseb. I. c. p. 39. C. gesprochen), so
-halte ich für wahrscheinlicher, daß das Wort soviel als
-7, Seher, ist, welches griechisch wohl nur durch
-Köne oder os- auszudrücken war. Das Wort scheint
-weniger allgemein als d22; dieses drückt die Eigenschaft,
-jenes das Amt aus (s. 2 Sam. 24, 11. 1 Par. 21, 9.
-25, 5.) und von dem ist hier die Rede.
-(82) Plut. in Num. c. 7. extr. d rperre r5
-le (aber Reiske schon verbessert ege) r5 e 4a-
-i asöa eda zakdo, a g, rdEpun- rac 0. rö
-EE re daoolas o0noeoov. Damit überein-
-stimmend Macr. Sat. III. 8. ,Romani pueros puellasve
-nobiles et investes Camillos et Camillas appellant,
-flaminicarum et flaminum prministros. Daher ist
-"estus de Verb. sign p. 149. cd. in us. D. Fla-
-3
-
-
-### 0089
-
--( 82 ) -
-minius Camillus puer dicebatur ingenuus patrimus
-et matrimus, qui Flamini Diali ad sacra premini-
-strabat, nicht so zu verstehen, als wolle er nur das
-Beiwort Flaminius erklären; sondern der dem Jupiters-
-Priester dienende Knabe hieß ursprünglich und vorzugs-
-weise Camillus. Daß er ae sein mußte, ein
-Knabe, deß beide Eltern lebten, war nicht weniger be-
-deutend.
-(83) -- --- -- - commune profundis
-Et superis numen, qui fas per limen utrumque
-Solus habes geminoque facis commercia mundo.
-Caudian de R. Pr. I. 89. Is.
-(84) Merkwürdig genug bricht der Geschichtschreiber
-Muaseas schon mit Dionysos ab, sei es, daß er selbst keine
-höhere Weihe empfangen, sei es, was wahrscheinlicher,
-daß heilige Scheu ihn zurückhielt, das letzte Geheimniß
-auszusprechen. Einige, sagt der Scholiast, setzen den
-vierten hinzu. Nicht alle also gelangten bis zu dieser
-Zahl (des Kadmilos), mit der sich der Sinn des Gan-
-zen erst aufschloß. Über diese Zahl hinaus führt kein
-Schriftsteller die Reihe; nur außer der Ordnung, einzeln
-werden Zeus, Venus, Apollo u. a. genannt. Um so
-natürlicher ist, den bei dem alten Scholiasten mit Kadmi-
-los abreißenden Faden durch andere Bruchstücke fortzuse-
-tzen, die sich unter den Trümmern phönicischer Kosmo-
-gonien finden. Es kann um so weniger nöthig sein, die
-Streitfrage über die Aechtheit oder Unächtheit dieser
-Bruchstücke aufzunehmen, da man ohnedieß von beiden
-Seiten her angefangen, in den Mittelweg einzulenken.
-
-
-### 0090
-
-( 83 )-
-Doch ist vielleicht folgende Bemerkung an ihrer Stelle.
-Sanchuniathon erklärt sich als Feind jeder tieferen, wie
-er sie nennt, allegorischen, oder wie man heutzutage sagen
-würde, mystischen Bedeutung, als Eiferer für den ro-
-hen buchstäblichen Verstand der alten Göttergeschichten,
-die bei ihm völlig verwildert erscheinen. So roh und
-ohne alle Ahndung tieferen Verstands treiben sich in sei-
-nem wunderlichen Chaos auch die Trümmer um, von
-denen wir hier reden wollen. Ein Betrug, wie ihn Mos-
-heim dachte, und mit solchem Zweck, hätte sich mit sol-
-chen Einschiebseln schwerlich Genüge gethan. Nachdem
-also Sanchuniathon von den Korybanten und Kabiren
-gesprochen, fährt er fort: "Zur Zeit derselben ward
-geboren ein gewißer Eljun mit Namen, der Höchste.
-Durch leichte Aenderung wäre der Sinn herauszubringen:
-Nach denselben; aber es ist für unsern Zweck unnö-
-thig; um so mehr da man diesem Bruchstück, wenn kei-
-nen höheren Ursprung zugesiehen, doch in dem Mythus
-von der durch die Kureten und Korybanten (auch merk-
-würdig!) bewachten Geburt des Zeus seine Wurzel an-
-weisen könnte. Eljun ist der wirkliche Name des höch-
-sten Gottes Genes. 14, 18., deß Priester jener aus dem
-Dunkel der Urzeit wunderbar hervortretende Malki-Se-
-dek ist, Name des Gottes, der ,Himmel und Erde
-(so würde ja auch die kabirische Zweyheit ausgedrückt)
-besitzet, also des Weltherrn, des Demiurgen. Darf
-man die, vorzüglich von Creuzer geltend gemachte Be-
-merkung auch hier anwenden, daß der Priester den Gott
-vorstellt und auch wohl dessen Namen trägt: so ist Mal-
-
-
-### 0091
-
--- ( 84) -
-ki-Sedek der Name des höchsten Gottes selbst, wofur
-auch spricht, daß schon die ältesten jüdischen Schriften,
-die hierinn sicher Überlieferungen folgten, z. B. das
-Buch Sohar, Sopher Ietziro, Beresit Rabba (s. Boch.
-. S. p. 707.), den Namen Zeus durch ps, Sedek,
-ausdrücken. Ieder mit hebräischem Sprachgebrauch Be-
-kannte weiß aber, daß Malki-Sedek nichts anderes be-
-deutet, als der vollkommene König, der vollendete Herr-
-scher, also eben das, was 1 Tim. 6, 15. nai (auch
-dieß im Sinn von vollendet) z ovsne, da-
-ec rd Zaoeora c, zpc rä ootedo heißt.
-Die anderen, nächst ihm vollkommensten, Naturen, herr-
-schen zwar auch, aber sie herrschen nur als Werkzeuge;
-wie Diener eines irdischen Königes nicht als Selbstherr-
-scher, sondern als Stellvertreter. Zu dem allem kommt
-Folgendes. Die sieben Söhne Sydyks (bei Damascius
-Sadiks) heißen urkundlich die Kabiren, Euseb. p. 39.
-Der Sinn ist hier derselbe, wie wenn die ersten (unter-
-sten) Kabiren Söhne des Hephästos heißen. Nämlich
-sie alle zusammen sind nur Sydyk, der eine vollendete
-Herrscher lebt nur in ihnen, sie sind nur gleichsam die
-einzelnen Glieder des Einen; die den Vater verwirkli-
-chenden und sichtbar machenden Kräfte, 'die in sofern auch
-in der Offenbarung oder Sichtbarkeit ihm vorangehen.
-Denn irren würde sich, wer aus diesem Verhältniß et-
-was für die Vorstellung der Emanation schließen wollte;
-es gilt hier, was ein in Bentl. Ep. crit. ad Mill. subj.
-Hist. chr. Joh. Mal. p. 81. angeführter 2enozde in an-
-drer Beziehung sagt: aclase ve z i ao,
-
-
-### 0092
-
--
-3
-( 85 )--
-z y60 g atio. Sind also die Kabiren
-Söhne Sydyks und war desselben Sydyks (Sedeks) Prie-
-ster jener König von Salem, so wäre vielleicht erlaubt,
-zu sagen, dieser Malki-Sedek war der erste bekannte
-Kabir (so hießen ja auch die Priester und Geweihte),
-dem das System eröffnet war, das im Lauf der Zeiten
-vollendeter Klarheit bis in die Sieben-ja in die Achtzahl
-aufgeschlossen werden sollte. Doch nur zweifelnd dürfen
-diese ältesten Verbindungen angedeutet werden. Zu sicht-
-lich, um vom besonnensten Forscher ganz von der Hand
-gewiesen zu werden, sind jene Anzeigen doch auch wieder
-zu schwach, um eine eigentliche Behauptung auf sie zu
-gründen. Eine größere, in weiterem Umfang und von
-andern Seiten hergeführte Untersuchung könnte jedoch
-ihre Kraft verstärken.
-(85) Von einem solchen System sagten dann auch
-wohl im Alterthum schon diejenigen, die es nicht bis zum
-Ende fortdachten oder verstanden, es sei nur Natur-
-philosophie. So Cicero de nat. D. I. 42. Pratereo
-Samothraciam eaque
-- -- Quae Lemni
-Nocturno aditu occulta coluntur
-Sylvestribus sepibus densa:
-Ouibus explicatis ad rationemque revocatis ze7
-gs 7 cognoscitur 97 Deor. Sainte-
-Croix p. 356. "Clément d'Alexandrie avoue, que
-l'Epoptie étoit une espece de physiologie, dazu
-Strom. IV. p. 164. Aber diese Stelle sagt etwas ganz
-Anderes, nämlich: "die dem Kanon der Wahrheit (der
-
-
-### 0093
-
--( 86) --
-christlichen Lehre) gemäße Naturphilosophie (Physiolo-
-gie), eine Überlieferung höherer Erkenntniß, eher aber
-eine Epoptie zu nennen, fängt von der kosmogonischen Art
-der Untersuchung an und steigt von da zu derjenigen auf,
-die göttliche Dinge betrifft."
-(86) Sainte-Croix p. 355.
-(87) Die Freigebigkeit mit den Erklärungen durch
-Betrug, Priestergaukeley u. s. w. ist gewiß bezeichnend
-für die letzte Zeit. Der Lüge werden Kräfte zugetraut,
-die man kaum der Wahrheit zuschreibt. So blödsinnig
-auch war das Alterthum nicht, wenn es gleich nicht mit
-vermeynter Schlauheit überall Täuschung witterte. Wenn
-nicht im Heydenthum etwas sehr Ernstliches und mehr, als
-man denkt, Wirkliches lag, wie konnte der Monotheis-
-mus so lange Zeit brauchen, seiner Meister zu werden?
-Erweiterte Erfahrung, die von Zeit zu Zeit manches be-
-greifen lehrt, was unbegreiflich schien, erteilte schon
-Warnungen genug. Die neuste betrifft die tönende Mem-
-nonssäule. Mancherley Thatsachen, z. B. das periodi-
-sche Aufhören und Wiederkommen des Tons, auch daß
-offenbar mehrere solcher tönenden Säulen waren, Um-
-stände, die kürzlich Iacobs in der ang. Abh. mit scharf-
-sichtiger Gewandtheit zusammengestellt, hinderten nicht,
-Priesteranstalt dabei zu vermuten. Nun kommen die
-gewiß unverdächtigen Franzosen, und siehe noch jetzt tö-
-nen bei'm Aufgang der Sonne die Granit-Blöcke des
-thebäischen Thals.
-(88) Ol ipa g, Iara ogra 'HeanA-
-rs, peeor.Ero oo, zsvo ea i se-, a
-
-
-### 0094
-
--( 87 )-
-e , Te öo. Clem. Al. Strom. L. V. p. 718.
-Vgl. Voß zu Virgils Landbau S. 808. Mahomeda-
-nisch darf der Monotheismus wohl heißen, der nur Ei-
-uer Persönlichkeit, oder einer ganz einfachen Kraft
-den Namen Gott zugedacht. Daß er nicht neutestament-
-lich, bedarf keines Beweises; daß auch nicht alttestament-
-lich, darüber s. Weltalter 1ster Teil.
-(89) Vgl. Creuzer Vorr. zu IV. S. IV. Gefal-
-len ist wohl dieses System weniger durch sich selbst als
-durch die abgeschmackten Anwendungen, eines Huetius
-e .
-(90) Ich sage: eines wissenschaftlichen Systems,
-nicht eines blos instinctmäßigen Erkennens, etwa in Vi-
-sionen oder im Hellsehen oder auf andere ähnliche Arten,
-die man sich heutzutag ausdenkt, da einige geradezu der
-Wissenschaft entsagen, andere wo möglich ein Wissen ohne
-Wissenschaft aufbringen möchten. Da übrigens das Da-
-sein eines solchen Ursystems, das, älter als alle schrift-
-liche Denkmäler, die gemeinschaftliche Quelle aller reli-
-giösen Lehren und Vorstellungen ist, im Text nicht ei-
-gentlich behauptet, sondern nur als eine Möglichkeit hin-
-gestellt wird, so wird es wohl verstattet sein, dieser An-
-führung wegen auf künftige, nicht einen Teil betreffen-
-de, sondern es selbst (das Ursystem) in seiner Ganzheit
-herzustellen suchende Forschungen zu verweisen, nach de-
-ren Mitteilung dann gegen die Annahme sich erklären
-mag, wer sie nicht als die wahrscheinlichste erkennen zu
-müssen alaubt.
-
-
-### 0095
-
--( 88 )-
-(91) Ohngefähr, wie alle Kraft und Herrlichkeit des
-neueren Europa's, aus den germanischen Völkern, mit
-denen die Pelasger überhaupt manche Züge gemein ha-
-ben; ihre Wanderungen, und die Urteile, die von spä-
-teren Geschichtsforschern über beide ergangen (s. unter
-andern Larcher Chronol., Herodote T. VII. p. 277.),
-sind nicht die stärksten derselben.
-(92) L. II. c. 52. extr.
-(93) Aoz ' ö- As ir''Arrs edat.
-II. 50.
-(94) Daß die Namen der meisten Götter nach
-Griechenland aus Egypten gekommen sei'n, kann ohne-
-hin nicht buchstäblich genommen werden. Vielleicht wenn
-Herodots Kenntnisse weiter sich ausdehnten, weit entfernt
-die griechischen Götternamen aus Aegypten abzuleiten,
-zweifelte er, ob die ägyptischen selbst ägyptischen Ur-
-sprungs seien. Von Osiris war schon die Rede. Wer
-sich noch mehr überzeugen will, sehe die eben so unge-
-wissen als flachen Erklärungen an, die von ägyptischen
-Götternamen aus der koptischen Sprache seit Kirchers
-Zeiten, von Iablonsky, Georgii (Alphab. Tibet.),
-T0ega und andern, gegeben worden sind. Wie unnütz
-also muß es erscheinen, ägyptische Etymologieen noch wei-
-ter, auch auf griechische Namen, auszudehnen! Hievon
-nur Ein Beispiel an dem orphischen Herikapäos. Eh-
-mals wollte man in ihm durch kabbalistische Rechnung den
-Schem hamphorasch (Iehovah-Namen) finden; das
-nennt Bentley ep. ad Mill. p. 4. mit Recht aniles Ca-
-balistarum fabulas. Aber nun kam das ägyptische Vor-
-
-
-### 0096
-
--( 89 )-
-urteil. Münter allein in der ang. Abh. S. 34. Anm.
-gibt zwei Erklärungen. Noch mehrere kann man bei
-Creuzer III. 388. angeführt finden. Bentley, der den
-Namen doch nicht los werden kann und p. 90. zum zwei-
-tenmal auf ihn zurückkommt, begnügt sich, zu bemerken,
-die Sylbe e (nach der Lesart Hasralog) könne nimmer-
-mehr weder griechisch noch lateinisch sein. Darum habe
-er wohl gethan, den ineptis plerumque et cassis Ety-
-mologiis (nämlich aus griechischer Sprache) nicht nach-
-zugehen; schwören wolle er, daß selbst Orpheus keine
-anzugeben wüßte. Ohne sich zu vermessen, könnte man
-dagegen schwören, eine (freilich nicht griechische) Etymo-
-logie anzugeben, die der unvergleichliche Bentley selbst,
-wenn er von den Todten wiederkäme, als die wahre er-
-kennen würde. Doch erwarte man darum nichts außer-
-ordentliches, sondern nur etwas ganz leichtes und einfa-
-ches. Das Wort HHraldc ist nicht mehr noch weni-
-ger als das hebräische d1e (Erec-Apaim),
-das Exod. 34, 6. und anderwärts als Name oder Prä-
-dicat des wahren Gottes vorkommt, oder, damit es noch
-ähnlicher sei, nach der chaldäischen Form (s. Buxt. Lex.
-p. 216.) ; e (Erik-Apain), welches den Lang-
-müthigen, Mitleidigen, der weiten Herzens ist, bedeu-
-tet. Und das ist er ja, der Herikapäos, der mit Diony-
-sos (s. Anm. 65.) so viel Aehnlichkeit hat (e d é
-öoooc, sagt Proclus cit. ad Orph fragm. ed. Gesn.
-= Herm. p. 466.) Gae HHerl oe
-ögor) der Lebensgeber (oro, Malal. hist. chron.
-p. 91.), der weitherzige Gott, im Gegensatz mit dem
-
-
-### 0097
-
-( 90)-
-engherzigen, der das Leben vielmehr verschließt, hindert.
-Es ist den Hellenisten zu verzeihen, wenn sie, immer die
-griechischen Herleitungen im Auge, den Etymologieen
-nicht hold sind; auch Ruhnkenius hat sich nicht Einmal
-stark darüber erklärt. Doch sollte man nicht alle und
-aus jeder Sprache verschmähen, denn z. B. weder in
-kritischer noch in historischer Beziehung kann es unwich-
-tig sein, zu wissen, daß der orphische Herikapäos he-
-bräisch oder alttestamentlich ist. Doch dieser Name ist ja
-blos orphisch und beweist also nichts für ägyptische! Nun
-höre man Plut. de Is. et Os. p. 359. T r o-
-o " e ((5'Oploc) r é 'Ep-
-zal o cn epseevo. Omphis also ein zweiter
-Name des Osiris? Hier weiß sogar Iablonski keinen
-Rat. Die Stelle muß verdorben sein, gewiß hat Plu-
-tarch Pöc geschrieben, denn nur für ein solches Wort
-läßt sich aus dem Koptischen die Bedeutung des Wohl-
-thuenden herbeischaffen, Vocc. g. in Opusc. ed. de
-WWater I. p. 184. Wenn man aber weiß, daß dasselbe
-Wort, aus dem oben der Herikapäus erklärt worden,
-auch (oder vielmehr ursprünglich) s12d ae (erik-
-anphin) geschrieben wurde, so wird man durch die sehr
-natürliche Abkürzung nicht nur den Namen, sondern auch
-die Bedentung: der Wohlthätige, erklärt finden. Wir
-könnten nun noch weiter gehen; denn jener Erik-apin
-verlangt ja auch seinen Gegensatz, einen engherzigen Gott;
-es scheint nicht schwer zu sagen, in welchem Namen die-
-ser zu finden ist; aber dieß mag einstweilen hinreichen,
-nur aufmerksam zu machen. Der Zweifel, der in Anse-
-
-
-### 0098
-
--( 91) -
-hung der ägyptischen Götternamen geäußert worden, dürf-
-te mit der Zeit wohl auch in Ansehung der indischen laut
-werden; versteht sich der bedeutendsten. Daß ein Volk
-die Namen der Götter, die es nicht selbst erfunden, nicht
-zu verändern gewagt, ist bei weitem mehr, als das Ge-
-genteil wahrscheinlich. Auch an die Namen war ein
-Zauber geknüpft, und was der allgemeine Aberglaube
-von Beschwörungsformeln hält, daß sie nur in der Spra-
-che wirken, in welcher sie überliefert worden, galt wohl
-auch von Götter-Namen. So behielt Samothrace mit
-dem alten Dienst nicht nur die alten Namen, sondern auch
-in heiligen Gebräuchen gewisser Ausdrücke einer eigenen
-alten Sprache ("ac e a szrs) bis auf Diodors
-von Sicilien Zeiten, der diese Wörter zwar von den Au-
-tochthonen der Insul herleiten will (L. V. p. 357.),
-die aber alle wahrscheinlich von der Art des Worts 0oe
-waren (Anmerk. 81.). So behielt Eleusis die fremd-
-lautende Entlassungsformul, so die Sabazien ihr Hyes
-Attes! näherliegender Vergleichungen nicht zu gedenken!
-Doch wozu auch nur dieses, da das Beispiel der beweg-
-lichen Griechen allein entscheidend ist, die selbst im freien
-dichterischen Gebrauch die Namen beibehielten, von de-
-nen Herodot (weit bestimmter davon redend, als von der
-ägyptischen Herkunft) sich durch seine Untersuchun-
-gen überzeugt zu haben versichert, daß sie mit weni-
-gen Ausnahmen (die auch nicht einmal alle Ausnahmen
-sind) den Griechen von den Barbaren gekommen.
-(95) Herodot. L. II. 49. extr.
-(0) L. II. c. 51.
-
-
-### 0099
-
--(92)-
-(97) Münter I. c. p. 30. Creuzer II. 285. ff.
-Iacobs über die Memn. Anm. 63.
-(98) L. III. c. 37.
-(99) Euseb. pr. ev. p. 38. "Saturn gab dem Po-
-seidon und den Kabiren die Stadt Beryth zum Sitz.
-Es ist dieß die einzige mir bekannte Stelle, wo Poseidon
-und die Kabiren zusammen, aber unterschieden, genannt
-werden. Nämlich Poseidon ist der Kabiren oder vielmehr
-sie sind des Poseidons Gegensatz. Er ist das blindlings
-Auseinanderrollende, Spaltende, Zertrennende; sie das
-Zusammenhaltende. Die Kabiren halten den Poseidon
-bewältigt, sie selbst überwindet wieder ein andrer, der in
-sofern z e g Geee (Anm. 66.), aber in ei-
-nem ganz andern Sinn ist, als der zerstörende Poseidon.
-Spuren genug dieses Gegensatzes gibt der XXI. Gesang
-der Ilias. Grade die Verbindung des Poseidons und
-der Kabiren in jener Stelle ist Beweis der Urkundlich-
-keit der Angabe. Man erinnere sich: was Herodot eben
-auch über Poseidon sagt. Nach dieser Ansicht möchte auch
-was §. 5. in. des Textes erwähnt ist, noch eine tiefere
-Deutung zulassen. In sofern schiene mir die Bochar-
-tische Erklärung von Patäken noch immer vorzuziehen,
-wenn man als den Grundbegriff von r2 (wohl nicht
-unrichtig) firmus fuit, firmiter innixus est annähme.
-Patäken wären alsdann die festmachenden, die sichern
-Grund gebenden; Gegensatz von instabilis tellus, inna-
-bilis unda.
-(100) Gutberleth Diss. de Mysteriis. Deorum
-Cabirorum, insert. ej. Opusc. Franeck. 1704. et
-
-
-### 0100
-
--- ( 93) --
-f Poleni Suppl. ad Thes. antt. Gr. et R. T. II. p. 824.
-Dieser übersetzt oa a 0 durch fortis et ro-
-busti viri imaginem, ein Sprachgebrauch, für den er
-nichts anzuführen weiß, als Ez. 27, 11. nach der grie-
-chischen Übersetzung des Aquila, wo oy, meynt er,
-dem Zusammenhang nach nur starke Männer bedeuten
-könne.
-(101) Creuzer. Dionysus p. 133. s.
-(102) Tu, genitor, cape sacra manu patriosque Penates.
-en. II. 717.
-(103) S. die 72ste Anm.
-(104) Wachter. Gloss. Germ. II. pag. 1989.
-Twerg (Anglosax. dwerg, dweorh, Franc. duverch),
-Damon silvestris montes et saxa inhabitans, vo-
-cem compellantibus reddens, et esco e
-abcs, secundum Mythologiam Islandorum,
-cui nomen Edda. Verel. in Jnd. dge et in
-plural. dgc, semideemones, rupicole, ate a-
-b/ ms. (717 cee in explica-
-tione Voluspe Stroph. VII. dwergi sic dicuntur a
-es 70; warum nicht gradezu von esgyc? Über
-die Bergmännlein, Wichtlein u. s. w. läßt sich der wa-
-ckere G. Agricola (s. über ihn v. Goethe's Farbenlehre
-II. S. 237.) in der Abh. De Animantibus subter-
-raneis (De re metall. libri XII. p. 491.) deutsch über-
-setzt also vernehmen. "Von andern werden sie (die die
-Griechen Cobalos nennen) Bergmännlein genannt nach
-ihrem gewöhnlichen Leibesmaß, denn sie erschienen wie
-Zwerge dreier Spannen hoch und zwar wie alte Männ-
-
-
-### 0101
-
--( 4) -
-lein (seneciores), gekleidet wie die Bergleute, in einem
-gekappten Hemd und mit einem um die Lenden herab-
-hangenden Schurzleder (wie Kabiren auf Münzen; Ka-
-biren-Hammer und Schlägel fehlt in andern Beschrei-
-bungen auch nicht). Diese pflegen den Erzgräbern kei-
-nen Schaden zu tun, sondern schweifen herum in den
-Schachten und Gängen und scheinen alle mögliche Arbei-
-ten vorzunehmen, da sie doch nichts tun. Bisweilen
-werfen sie die Arbeiter mit Steinchen, verletzen sie jedoch
-nie, wenn sie nicht gereizt und in ihrer Gaukel-Arbeit
-gestört werden. Weßhalb die Bergleute durch sie von
-der Arbeit nicht abgeschreckt, sondern als durch ein gutes
-Zeichen aufgemuntert werden, desto eifriger und stärker
-drauf zu setzen und stärker zu arbeiten.' Auch aus Theo-
-phr. Paracelsus wäre viel von den Pygmis anzufüh-
-ren, das er doch wohl nicht blos aus seinem Gehirn,
-sondern aus gemeiner Volkssage genommen. Ob er ih-
-nen gleich manches Böse nachsagt, rühmt er sie doch auch
-wieder als solche, "die oft unsre Warner, Wächter und
-Beschützer sind in großen Nöthen, helfen oft einem außer
-Gefängniß und dergleichen Hülfe mehr. Den böhmi-
-schen Gebirgsbewohnern kommen sie bis in die Häuser als
-wahre lares familiares oder lemures, daß man sie un-
-ter der Erde kann hämmern und schmieden hören, deß-
-halb heißen sie dort und in angränzenden deutschen Län-
-dern auch Hausschmiede. S. Balbin. Misc. hist. Boh.
-L. I. p. 45. In dieselbe Classe gehören die ebenfalls
-von Agricola p. 492. erwähnte deemones, qui quotidie
-partem laboris perficiunt, curant jumenta, et quos,
-
-
-### 0102
-
-( 95)--
-quia generi humano sunt aut saltem esse videntur
-amici, Germani Gutelos appellant (Xns0 heißen
-auch die Kabiren, Macrob. III. 4. vielleicht auch jene
-alttest. Penaten die Theraphim, nach dem arab. ,).
-Aus einem alten Wörterbuch führt Scherz. Gloss. Germ.
-med. av. II. pag. 2011. an: ",ce,
-sceee penates. Die sanftmüthigen heißen vor-
-zugsweise Kobeln, Kobolde, ein Wort das schon Agri-
-cola und nach ihm Wachter u. a. vom griech. Koe
-herleiten. Nun sagt Is. Vossius ad Hesych. voc. Ia-
-Bago- not. 12. "asa0, 560, Köso-
-(auch wohl das bei Hesych. gleich darauf folgende zZ-
-oc) ejusdem omnia videatur naturae. Bei den un-
-zähligen Beispielen der Verwechselung von R und I ist
-nicht zu zweifeln, daß "0 für "00 gesetzt wird,
-und daß dieß mit zs-poc einerley Etymon habe, ist eben
-so wenig zweifelhaft. Hiedurch ist also die in den Vor-
-stellungen nachgewiesne Verbindung auch in den Namen
-aufgezeigt. Oft genug während dieser Untersuchung hat
-sich der eben so nahe als tief eingreifende Bezug zwischen
-den Kabiren und den Laren und Manen dargeboten (vgl.
-Arnob. adv. Gent. III. p. 124. ed. Lugd. Bat.), aber
-wir mußten uns einschränken.
-(105) Die Spur einer solchen Vorstellung könnte
-man in dem Namen Anaces ( A-ee) suchen wollen:
-denn wie dem auch sei, die einzig wahrscheinliche Erklä-
-rung dieses erst späten in Anactes verwandelten Worts
-(s. Cic. de n. D. III. 21) liegt in dem Enakim der Vor-
-zeit, Deut. 1, 28. In der nordischen Fabel und Dicht-
-
-
-### 0103
-
--( 96) -
-tunst finden sich meist, wo Riesen, auch Zwerge. Wer
-denkt nicht an das ,viel starke Gezwerg," das zugleich
-mit dem Nibelungen-Recken der Schätze und Burgen
-hütet und dem nebst großer Stärke Zauberkraft inwohnt?
-(106) Ilayes wird von oe, einer Faust hoch,
-erklärt. 400 sind Finger.
-(107) Söhne Sydyks (Anm. 84.) und Dios-Kuren
-ist einerley Name. Aber derselbe Name ist ja noch ur-
-kundlicher in jenen r 22 Gen. 6. vorhanden
-(daß darunter Söhne des höchsten Gottes gemeynt sind,
-zeigt das emphat. vor e). Von diesen erzählt
-das älteste Geschichtswerk: "Und die Söhne Gottes sa-
-hen die Töchter des Menschen, daß sie schön waren, und
-nahmen sich zu Weibern, die ihnen gefielen, worauf in
-demselben Zusammenhang folgt: "In jenen Tagen wa-
-ren Nephilim (Riesen) auf der Erde, zumal nachdem
-die Söhne Gottes sich mit den Menschentöchtern verban-
-den und sich Kinder zeugten. Dieß sind die Gewaltigen,
-die Männer des Namens (die Berühmten) von Urzeiten
-der Welt her." Es ist doch etwas ganz wunderbares
-um diese Stelle, mag sie nun für mythisches Bruchstück
-nach der beliebten Weise oder für Geschichte genommen
-werden. Will man nicht den ungereimten jüdischen Fa-
-beln Glauben beimessen, so kann man r 2 nur
-von Verehrern des wahren Gottes erklären, die gleichsam
-als abgesondert von den übrigen Menschen und als ein
-eignes Geschlecht vorgestellt werden. Es waren also so
-zu reden die Eingeweihten der ersten und ältesten Myste-
-rien; von Anfang an war etwas abgeschlossen, nur ei-
-
-
-### 0104
-
-- 97)-
-nem Teil des Menschengeschlechts vertraut, das sich erst
-allmälig wie von einem Mittelpunct aus verbreiten sollte.
-Ist es nicht auffallend, daß aller höhere und bessere Glau-
-be gleich anfänglich in Griechenland und sonst unter der
-Form von Geheimlehren auftritt? Augenblickliche und
-örtliche Ursachen lassen sich doch nicht immer und überall
-denken, sondern das Geheimniß, die Abgeschlossenheit
-schien, gleich ursprünglich und vom Anfang her, zugleich
-mit der Sache selbst gegeben. Söhne des höchsten Got-
-tes wurden jene Inhaber der ältesten Geheimlehre, wie
-die in ihrem Ursprung ofsenbar menschliche Zwillinge
-Dios-Kuren wurden und zuletzt selbst unter die Kabiren
-übergingen. Von diesen höheren Naturen stammen die
-ersten menschlichen Heroen, die Nephilim (Niflungen?)
-die gewaltig waren, so lange sie lebten und noch in der
-Unterwelt (Niffelheim der altnordischen Mythologie?)
-groß und berühmt sind, s. Es. 14, 9. Ieder mag su-
-chen diese wunderbaren Anzeigen so gut er kann weiter
-zu verknüpfen, aber sehr natürlich ist doch, sich nach ei-
-ner Erklärung der so allgemeinen Mysterien-Form schon
-in den ältesten Zeiten umzusehen. Was war auch die
-strenge Absonderung des jüdischen Volks anders, als ei-
-ne den Mysterien ähnliche Anstalt, nur daß sie nicht zwi-
-schen Menschen desselben Volks, sondern zwischen einem
-Volk und allen übrigen eine Scheidewand zog? Erst das
-Christenthum sollte alle Schranken aufheben.
-(108) Nämlich aus dem hebr. 2, mächtig stark.
+*) [GREEK] heißt Osiris bei _Plut. p. 317._ Derselbe _c. 42_ sagt, Osiris bedeute zwar sehr vieles, aber doch vorzüglich [GREEK] (nach Markland's Verbess.) [GREEK].
+
+*) _Id. c. 33._ Sanchuniathon bei _Euseb. p. 35._ sagt: [GREEK], welches Creuzer 4. 75. durch _Jovem penetralem_ erklärt. Hellanicus wollte den Namen als [GREEK] gehört haben; von der Befeuchtung, und Hyes, sei Dionysos genannt worden, [GREEK], sagt _Plut. c. 34._ Eben dieses Amt des Feuer-Löschenden übt er auch im andern Leben. Daher jener fromme Wunsch auf Grabmälern: Osiris gebe dir das kühle Wasser! Vgl. _Luc. 16, 24._ Auch dort ist er der beseligende Gott, weil durch ihn das Feuer jener unauslöschlichen Sucht gestillt wird, mit dem die Seelen der Ungeweihten erfüllt sind.
+
+*) _Sainte-Croix p. 27. 28. une quatrième divinité Cadmillus prit encore place parmi elles, mais il n'eut que le dernier rang._ Noch besser, ein andrer in den _Mém. de l'Ac. des Insc. T. 27. p. 14. qui n'étoit employé, qu'à exécuter les ordres des trois autres._ Creuzer, da ihm Axieros die höchste Gottheit ist, muß im Ganzen damit einstimmen, doch sucht er 2. 297. ff. andre Verkuüpfungen, deren Absicht fast scheint dem Kadmilos eine andre Bedeutung als die des Hermes zu verschaffen (vgl. S. 317.), welches auch wohl sein müßte, wenn er der den drei andern untergeordnete sein sollte.
+
+*) _Hymn. in Cer. 336._
+
+*) _Casmillus nominatur in Samothraces mysteriis Dius quidam administer Diis magneis. De lingu. lat. 50. 6. p. 88. ed. Bip._
+
+*) --- --- --- --- _superis Deorum_  
+_Gratus et imis._  
+_Horat._ Od. 1. 10. _extr._
+
+*) Ganz unnötig ist Bocharts Erklärung _G. S. 50. 1. p. 395._ aus [HEBREW] und der vom Arabischen hergeholten Bedeutung _ministrare_. [GREEK] ist ganz einfach [HEBREW] von [HEBREW], _prior, antecedens_. Der Name Kadmiel, eben so geschrieben, kommt in den späteren Büchern des A. T. und zwär als Name eines Priesters, eines Leviten vor. S. _Esr. 2, 40. 3, 9. Neh. 7, 43. al._ Sicher bedeutet er nicht, wie gewöhnlich erklärt wird (s. _Simonis p. 509._, denn _Hiller. Onom. Sacr._ mußte ich leider bei dieser ganzen Arbeit enrbehren), _quem Deus beneficiis prævenit_, sondern einen, der "vor Gott steht" (denn so wird der Begriff von _ministrare_ ausgedrückt, z. B. _Gen. 18, 8._, wo Abraham als ein wahrer Camillus vor den drei Männern sieht, vergl. _Neh. 12, 44. Jer. 52, 12._ und das röm. _præminister_ (_Deorum Macr. Sat. 1. 8._), welches denselben Nebenbegriff ausdrückt), oder einen, der "Herold, Bote, Verkünder Gottes ist," (wovon in der folg. Anm.) oder "der das Angesicht Gottes sieht," denn mit dieser Redensart würden _Ministri_ (auch der Könige) allgemein bezeichnet. Vgl. die selbst für die Etymologie des Worts nicht unwichtige Stelle _Esth. 1, 10._ Die chaldäische Übersetzung des A. T. befleißiget sich [HEBREW] zu sagen, wo im Hebräischen blos steht [HEBREW]. S. _Buxt. Lex. p. 19. 70._ Selbst die etruscische Zusammenziehung (_Camillus_) ist hebräisch und besonders dem hierosolymitanischen Dialect des Chaldäischen eigen. Dort wird allgemein für [HEBREW] und [HEBREW] blos [HEBREW] und [HEBREW] gebraucht, s. _Buxt. p. 1971._ Hebräisch ist die Zusammenziehung, denn sie findet sich im Namen _Kemuel Gen. 22, 21. 1 Par. 27, 17._, der gewiß unrecht durch _grex Dei_ (_Sim. p. 509._) erklärt wird, er ist statt _Kemiel_, wie _Genes. 32, 30. 31._ _Peniel_ und _Penuel_ unmittelbar hinter einander verwechselt werden, und dieses statt _Kadmiel_.
+
+*) Der [HEBREW] _Es. 63. 9._, auch [HEBRE] schlechthin _Exod. 23, 20. sq._ Eine ausführliche Erklärung dieses Begriffs findet sich im 1sten Teil der Weltalter. Wen muß es nicht verwundern, dieses Verhältniß durch die ganze heilige Geschichte beobachtet zu sehen, wie wenn Aaron Mosis Mund, also recht eigentlich sein Mercur ([GREEK] _Act. 14, 12._) wird, Christo Johannes vorangeht, ihm den Weg bahnend, daher von einem Kirchenvater (_Tertull. de orat. 1._), der wahrscheinlich auf den Begriff des Camillus (s. Anm. 71.) anspielt, _præminister domini_ genannt. Was im A. T. der Engel des Angesichts, was in den griechischen Geheimlehren der Kadmilos, in etruscischer Religion Hermes-Camillus ist, das ist der späteren jüdischen Philosophie der _Metatron_, ein sonderbarer Name, von dem vielleicht bei andrer Gelegenheit! Er ist der vornehmste Engel und eben so erhaben über alle Engel, d. h. alle Naturen, die nur Boten, Werkzeuge der höchsten Gottheit sind, als nach unserer Ansicht der Kadmilos über die ersten Kabiren. Er heißt auch der Bote, der Gesandte, [HEBREW], Eisenmengers entdecktes Judentum T. 2. S. 395., er ist auch der "Fürst des Angesichts," der immer das Angesicht sieht des gebenedeieten Königs, das. S. 396. Von demselben sagen sie, er sei [HEBREW] und [HEBREW], zugleich alt und jung, er ist alt, als einer, der auffährt über die Himmel zum Thron der Herrlichkeit, jung, wenn er in die Welt der Formirung zurückkommt, d. h. Dienste als Camillus verrichtet, ebend. S. 397. Der etruscische Camillus war bekanntlich ein Knabe. "Der Metatron, sagt ein jüdisches Buch, wird _Naar_, d. i. ein Knabe genannt, weil er vor der Schechinah (der göttlichen Majestät) eines Knaben Dienste versieht," ebend. Die Etrusker haben ihre Vorstellung nicht von diesen späteren Juden, diese die ihrige eben so wenig von den Etruskern. Die gemeinschaftliche Quelle ist _Prov. 8, 30._, wenn man [HEBREW] richtig übersetzt; so wie ebendas. v. 22. Der Grund liegt vom Metatron als "Anfang der Wege Gottes, Eisenm. _l. c._, und von Hermes als Gott der Wege.
+
+*) Nicht blos _interpres_, sondern _augur quasi_, _divinator Dei_. _Es. 3. 2._ steht [HEBREW] neben [HEBREW]. Ist es wahr, wie erzählt wird (_Plut. pl. phil. 50. 2. in._), daß Pythagoras zuerst den Inbegriff aller Dinge [GREEK] genannt, so sieht es zweidentig aus um die gewöhnliche Erklärung dieses Worts. Nach der Urlehre, aus deren Quellen Pythagoras schöpfte, ist die ganze Welt nur ein _Kesem_, ein _augurium Dei_. Ich bemerke, daß Kasmilos auch wohl noch in anderer Beziehung _augur Dei_ heißen kann; doch dieß ist tieferer Erforschung, und das Verhältniß des vorangehenden bleibt dabei dasselbe. Die Herleitung von Kasmilos aus [HEBREW] gibt schon Bochart, Hieroz. 2. 36. Wenn aber Münter in der angef. Abh. für die phönicische Erklärung von Kasmilos, dagegen für die ägyptische Erklärung der drei ersten Gottheiten spricht, so wäre unstreitig folgerichtiger zu schließen, daß weil Kadmilos, Kasmilos, Camillus unwidersprechlich und unbestreitbar hebräische Wörter sind, die andern, derselben Lehre und demselben Geheimdienst angehörigen, auch aus dieser Sprache sein müssen. Freilich meint Münter, aber ohne allen Grund, die drei ersten Kabiren seien aus Aegypten gekommen, der vierte erst von den Phöniciern eingeführt worden. _Sainte-Croix_ dagegen hält grade den Kadmilos für ägyptisch. Bemer, kenswert ist noch, daß von allen griechischen Völkerschaften grade die Böotier den Hermes Kadmilos nannten, dieselbe Völkerschaft, unter der (s. _Larcher_ zu _Herod. 2. 49._) die Nachkommen des Tyriers Kadmos und der Phönicier lebten, die dortin mit ihm gekommen waren. Auch blos Kadmos heißt oft der Kadmilos.
+
+*) So erklärt sich Creuzer, Symb. und Myth. 2. 333. Es scheint diesem ausgezeichneten Werk überhaupt nicht vorteilhaft zu sein, daß zufolge einer sehr particularen philosophischen Ansicht, die man am Ende des 4ten Teils entwickelt findet und die dem Christenthum, wie dem Alterthum, nur gewaltthätig aufzudrinaen ist, allen Erklärungen die Emanations-Theorie zu Grunde gelegt worden. Indeß kann diese Ansicht als etwas Fremdartiges rein abgeschieden werden von dem Werk, dessen unschätzbares Verdienst, durch höhere Ideen im Verein mit umfassender Gelehrsamkeit den Weg für eine tiefere Erkenntniß der ganzen Mythologie gebrochen zu haben, dadurch unangetastet bleibt. Insbesondre halte ich für recht, hier zu erwähnen, was eigentlich früher hätte erwähnt werden sollen, daß Creuzer durch das Licht, in welches er die Ceres- und Proserpina-Lehre gesetzt, die ersten Mittel zu der Ansicht gegeben, die in gegenwärtiger Abhandlung entwickelt wird. Er hat, besonders 4. §. 39., unwiderleglich dargetan, daß Ceres das erste der Wesen ist, und dieser Lehrsatz, recht verstanden, das erste Wesen nämlich nicht mit Creuzer zugleich für das oberste, sondern als das allem zu Grunde liegende genommen, ist das Fundament, auf welchem dieses Erklärungssystem ruht. Wenn daher derselbe geistvolle Gelehrte in Erklärung der samothracischen Geheimnisse Zoega nachgibt, und mit ihm Axieros für die höchste Gottheit des ägyptischen Systems hält, so streitet dieß gegen die Analogie der von ihm selbst anderwärts aufgestellten mythologischen Grundsätze.
+
+*) Daher auch die Einschränkung a. a. O. "Dieses Hervorgehen und Zurückkehren aus Einem Wesen und in dasselbe ward ohne Zweifel dem Gebildeteren als Grundlehre vorzutragen, die freilich der rohe Pelasger nicht zu fassen im Stande war. Ihm gab man dafür eine Reihe von Sterngöttern und ihnen entsprechende Baethylien, Idole von der Sternenkraft influirt und magisch wirksam u. s. w."
+
+*) Creuzer 2. 321.
+
+*) Der mögliche Einwurf, daß Dionysos als höherer Demiurg dem Hephästos entgegengesetzt wird (Creuzer 3. 414.) und doch nach obiger Ansicht selbst ein Hephästos ist, wird sich durch Anm. 80. erledigen.
+
+*) Creuzer am eben angef. O.
+
+*) [GREEK]. Ebenders. ebendas. aus _Procl. in Plat. Theol. 6, 22._
+
+*) Aber auch Dionysos ist Demiurg und zwar der den Hephästos gewißermaßen überwindende Demiurg, der die Schöpfung aus den Banden der Notwendigkeit erlöst und in freie Mannichfaltigkeit aus einander setzt. Dieser scheinbare Widerspruch löst sich schon durch die allgemeine Bemerkung, daß ein Wesen oder Princip, das höher steht als ein andres und in sofern sein Gegensatz (sein Überwindendes) ist, dennoch gegen ein noch höheres mit jenem zu Einer Gattung gehören kann. Für Solche, die aus Andeutungen ein Ganzes verstehen, sei Folgendes! Auch Zeus ist wieder Dionysos, wie ja auch mitunter ausdrücklich gelehrt wurde. (S. die Anführungen von Creuzer 3. 397. vgl. mit 416.) Nämlich Zeus verhält sich zu den drei ersten Potenzen wieder, wie sich die zweite zu der ersten verhält. Ich sage zu den drei ersten, obschon wir bisher vier zählten. Denn tiefer angesehen ist Ceres keine arithmetische Zahl. Sie ist die Mutter der Zahlen, die intelligible Dyas, mit der nach Pythagoreer-Lehre die Monas aller wirklichen Zahlen erzeugt. Persephone ist die erste Zahl ([GREEK]), die arithmetische Eins. Also Zeus verhält sich zu 1. 2. 3. wieder wie sich 2 zu 1 verhält und umgekehrt 2 verhält sich zu 1 nicht anders, als sich 4 zu 1. 2. 3. verhält. Des Zeus Zahl ist immer die vierte Zahl. Außerdem aber kehrt Dionysos noch einmal in höherer Potenz zurück. Axiokersos ist Dionysos in der tiefsten Potenz.
+
+*) [GREEK]. _Eus. pr. ev. 3. p. 117._ Auch Samothrace hatte seinen Hierophanten. Er hieß [GREEK]. Bochart, _G. S. p. 397._ leitet es, nicht eben unwahrscheinlich, von [HEBREW] ab. Da indeß der Hierophant von Eleusis auch [GREEK] hieß (von [GREEK] wird auch _Euseb. l. c. p. 39. C._ gesprochen), so halte ich für wahrscheinlicher, daß das Wort soviel als [HEBREW], Seher, ist, welches griechisch wohl nur durch [GREEK] oder [GREEK] auszudrücken war. Das Wort scheint weniger allgemein als [HEBREW]; dieses drückt die Eigenschaft, jenes das Amt aus (s. _2 Sam. 24, 2. 1 Par. 21, 9. 25, 5._) und von dem ist hier die Rede.
+
+*) _Plut. in Num. c. 7. extr._ [GREEK] (aber Reiske schon verbessert [GREEK]) [GREEK]. Damit übereinstimmend _Macr. Sat. 3. 8._, "_Romani pueros puellasve nobiles et investes Camillos et Camillas appellant, flaminicarum et flaminum præministros._" Daher ist "_Festus de Verb. sign. p. 149. ed. in us. D._" _Flaminius Camillus puer dicebatur ingenuus patrimus et matrimus, qui Flamini Diali ad sacra præministrabat_," nicht so zu verstehen, als wolle er nur das Beiwort _Flaminius_ erklären; sondern der dem Jupiters-Priester dienende Knabe hieß ursprünglich und vorzugsweise _Camillus_. Daß er [GREEK] sein mußte, ein Knabe, deß beide Eltern lebten, war nicht weniger bedeutend.
+
+*) --- --- --- --- _commune profundis_  
+_Et superis numen, qui fas per limen utrumque_  
+_Solus habes geminoque facis commercia mundo._  
+_Caudian_ de R. Pr. 1. 89. ss.
+
+*) Merkwürdig genug bricht der Geschichtschreiber Mnaseas schon mit Dionysos ab, sei es, daß er selbst keine höhere Weihe empfangen, sei es, was wahrscheinlicher, daß heilige Scheu ihn zurückhielt, das letzte Geheimniß auszusprechen. Einige, sagt der Scholiast, setzen den vierten hinzu. Nicht alle also gelangten bis zu dieser Zahl (des Kadmilos), mit der sich der Sinn des Ganzen erst aufschloß. Über diese Zahl hinaus führt kein Schriftsteller die Reihe; nur außer der Ordnung, einzeln werden Zeus, Venus, Apollo u. a. genannt. Um so natürlicher ist, den bei dem alten Scholiasten mit Kadmilos abreißenden Faden durch andere Bruchstücke fortzusetzen, die sich unter den Trümmern phönicischer Kosmogonien finden. Es kann um so weniger nötig sein, die Streitfrage über die Ächtheit oder Unächtheit dieser Bruchstücke aufzunehmen, da man ohnedieß von beiden Seiten her angefangen, in den Mittelweg einzulenken. Doch ist vielleicht folgende Bemerkung an ihrer Stelle. Sanchuniathon erklärt sich als Feind jeder tieferen, wie er sie nennt, allegorischen, oder wie man heutzutage sagen würde, mystischen Bedeutung, als Eiferer für den rohen buchstäblichen Verstand der alten Göttergeschichten, die bei ihm völlig verwildert erscheinen. So roh und ohne alle Ahndung tieferen Verstands treiben sich in seinem wunderlichen Chaos auch die Trümmer um, von denen wir hier reden wollen. Ein Betrug, wie ihn Mosheim dachte, und mit solchem Zweck, hätte sich mit solchen Einschiebseln schwerlich Genüge getan. Nachdem also Sanchuniathon von den Korybanten und Kabiren gesprochen, fährt er fort: "Zur Zeit derselben ward geboren ein gewißer Eljun mit Namen, der Höchste." Durch leichte Änderung wäre der Sinn herauszubringen: Nach denselben; aber es ist für unsern Zweck unnötig; um so mehr da man diesem Bruchstück, wenn keinen höheren Ursprung zugestehen, doch in dem Mythus von der durch die Kureten und Korybanten (auch merkwürdig!) bewachten Geburt des Zeus seine Wurzel anweisen könnte. Eljun ist der wirkliche Name des höchsten Gottes _Genes. 14, 18._, deß Priester jener aus dem Dunkel der Urzeit wunderbar hervortretende Malki-Sedek ist, Name des Gottes, der "Himmel und Erde" (so würde ja auch die kabirische Zweiheit ausgedrückt) besitzet, also des Weltherrn, des Demiurgen. Darf man die, vorzüglich von Creuzer geltend gemachte Bemerkung auch hier anwenden, daß der Priester den Gott vorstellt und auch wohl dessen Namen trägt: so ist Malki-Sedek der Name des höchsten Gottes selbst, wofür auch spricht, daß schon die ältesten jüdischen Schriften, die hierinn sicher Überlieferungen folgten, z. B. das Buch Sohar, Sopher Jetziro, Beresit Rabba (s. _Boch. G. S. p. 707._), den Namen Zeus durch [HEBREW], Sedek, ausdrücken. Jeder mit hebräischem Sprachgebrauch Bekannte weiß aber, daß Malki-Sedek nichts anderes bedeutet, als der vollkommene König, der vollendete Herrscher, also eben das, was _1 Tim. 6, 15._ [GREEK] (auch dieß im Sinn von vollendet) [GREEK] heißt. Die anderen, nächst ihm vollkommensten, Naturen, herrschen zwar auch, aber sie herrschen nur als Werkzeuge; wie Diener eines irdischen Königes nicht als Selbstherrscher, sondern als Stellvertreter. Zu dem allem kommt Folgendes. Die sieben Söhne Sydyks (bei Damascius Sadiks) heißen urkundlich die Kabiren, _Euseb. p. 39._ Der Sinn ist hier derselbe, wie wenn die ersten (untersten) Kabiren Söhne des Hephästos heißen. Nämlich sie alle zusammen sind nur Sydyk, der eine vollendete Herrscher lebt nur in ihnen, sie sind nur gleichsam die einzelnen Glieder des Einen; die den Vater verwirklichenden und sichtbar machenden Kräfte, die in sofern auch in der Offenbarung oder Sichtbarkeit ihm vorangehen. Denn irren würde sich, wer aus diesem Verhältniß etwas für die Vorstellung der Emanation schließen wollte; es gilt hier, was ein in _Bentl. Ep. crit. ad Mill. subj. Hist. chr. Joh. Mal. p. 81._ angeführter [GREEK] in andrer Beziehung sagt: [GREEK]. Sind also die Kabiren Söhne Sydyks und war desselben Sydyks (Sedeks) Priester jener König von Salem, so wäre vielleicht erlaubt, zu sagen, dieser Malki-Sedek war der erste bekannte Kabir (so hießen ja auch die Priester und Geweihte), dem das System eröffnet war, das im Lauf der Zeiten vollendeter Klarheit bis in die Sieben-ja in die Achtzahl aufgeschlossen werden sollte. Doch nur zweifelnd dürfen diese ältesten Verbindungen angedeutet werden. Zu sichtlich, um vom besonnensten Forscher ganz von der Hand gewiesen zu werden, sind jene Anzeigen doch auch wieder zu schwach, um eine eigentliche Behauptung auf sie zu gründen. Eine größere, in weiterem Umfang und von andern Seiten hergeführte Untersuchung könnte jedoch ihre Kraft verstärken.
+
+*) Von einem solchen System sagten dann auch wohl im Alterthum schon diejenigen, die es nicht bis zum Ende fortdachten oder verstanden, es sei nur Naturphilosophie. So Cicero _de nat. D. 1. 42. Prætereo Samothraciam eaque_
+--- --- _Quae Lemni_  
+_Nocturno aditu occulta coluntur_  
+_Sylvestribus sepibus densa_:  
+_Quibus explicatis ad rationemque revocatis rerum magis natura cognoscitur quam Deorum. Sainte-Croix p. 356._ "_Clément d'Alexandrie avoue, que l'Epoptie étoit une espèce de physiologie_," dazu _Strom. 4. p. 164._ Aber diese Stelle sagt etwas ganz Anderes, nämlich: "die dem Kanon der Wahrheit (der christlichen Lehre) gemäße Naturphilosophie (Physiologie), eine Überlieferung höherer Erkenntniß, eher aber eine Epoptie zu nennen, fängt von der kosmogonischen Art der Untersuchung an und steigt von da zu derjenigen auf, die göttliche Dinge betrifft."
+
+*) _Sainte-Croix p. 355._
+
+*) Die Freigebigkeit mit den Erklärungen durch Betrug, Priestergaukelei u. s. w. ist gewiß bezeichnend für die letzte Zeit. Der Lüge werden Kräfte zugetraut, die man kaum der Wahrheit zuschreibt. So blödsinnig auch war das Alterthum nicht, wenn es gleich nicht mit vermeinter Schlauheit überall Täuschung witterte. Wenn nicht im Heidenthum etwas sehr Ernstliches und mehr, als man denkt, Wirkliches lag, wie konnte der Monotheismus so lange Zeit brauchen, seiner Meister zu werden? Erweiterte Erfahrung, die von Zeit zu Zeit manches begreifen lehrt, was unbegreiflich schien, erteilte schon Warnungen genug. Die neuste betrifft die tönende Memnonssäule. Mancherlei Tatsachen, z. B. das periodische Aufhören und Wiederkommen des Tons, auch daß offenbar mehrere solcher tönenden Säulen waren, Umstände, die kürzlich Jacobs in der ang. Abh. mit scharfsichtiger Gewandtheit zusammengestellt, hinderten nicht, Priesteranstalt dabei zu vermuten. Nun kommen die gewiß unverdächtigen Franzosen, und siehe noch jetzt tönen bei'm Aufgang der Sonne die Granit-Blöcke des thebäischen Thals.
+
+*) [GREEK]. _Clem. Al. Strom. 50. 5. p. 718._ Vgl. Voß zu Virgils Landbau S. 808. Mahomedanisch darf der Monotheismus wohl heißen, der nur Einer Persönlichkeit, oder einer ganz einfachen Kraft den Namen Gott zugedacht. Daß er nicht neutestamentlich, bedarf keines Beweises; daß auch nicht alttestamentlich, darüber s. Weltalter 1ster Teil.
+
+*) Vgl. Creuzer Vorr. zu 4. S. 4. Gefallen ist wohl dieses System weniger durch sich selbst als durch die abgeschmackten Anwendungen, eines _Huetius_ z. B.
+
+*) Ich sage: eines wissenschaftlichen Systems, nicht eines blos instinctmäßigen Erkennens, etwa in Visionen oder im Hellsehen oder auf andere ähnliche Arten, die man sich heutzutag ausdenkt, da einige geradezu der Wissenschaft entsagen, andere wo möglich ein Wissen ohne Wissenschaft aufbringen möchten. Da übrigens das Dasein eines solchen Ursystems, das, älter als alle schriftliche Denkmäler, die gemeinschaftliche Quelle aller religiösen Lehren und Vorstellungen ist, im Text nicht eigentlich behauptet, sondern nur als eine Möglichkeit hingestellt wird, so wird es wohl verstattet sein, dieser Anführung wegen auf künftige, nicht einen Teil betreffende, sondern es selbst (das Ursystem) in seiner Ganzheit herzustellen suchende Forschungen zu verweisen, nach deren Mitteilung dann gegen die Annahme sich erklären mag, wer sie nicht als die wahrscheinlichste erkennen zu müssen glaubt.
+
+*) Ohngefähr, wie alle Kraft und Herrlichkeit des neueren Europa's, aus den germanischen Völkern, mit denen die Pelasger überhaupt manche Züge gemein haben; ihre Wanderungen, und die Urteile, die von späteren Geschichtsforschern über beide ergangen (s. unter andern _Larcher Chronol., Herodote T. 7. p. 277._), sind nicht die stärksten derselben.
+
+*) _50. 2. c. 52. extr._
+
+*) [GREEK]. 2. 50.
+
+*) Daß die Namen der meisten Götter nach Griechenland aus Egypten gekommen sei'n, kann ohnehin nicht buchstäblich genommen werden. Vielleicht wenn Herodots Kenntnisse weiter sich ausdehnten, weit entfernt die griechischen Götternamen aus Aegypten abzuleiten, zweifelte er, ob die ägyptischen selbst ägyptischen Ursprungs seien. Von Osiris war schon die Rede. Wer sich noch mehr überzeugen will, sehe die eben so ungewissen als flachen Erklärungen an, die von ägyptischen Götternamen aus der koptischen Sprache seit Kirchers Zeiten, von Jablonsky, _Georgii_ (_Alphab. Tibet._), _Zoëga_ und andern, gegeben worden sind. Wie unnütz also muß es erscheinen, ägyptische Etymologieen noch weiter, auch auf griechische Namen, auszudehnen! Hievon nur Ein Beispiel an dem orphischen Herikapäos. Ehmals wollte man in ihm durch kabbalistische Rechnung den _Schem hamphorasch_ (Jehovah-Namen) finden; das nennt _Bentley ep. ad Mill. p. 4._ mit Recht _aniles Cabalistarum fabulas_. Aber nun kam das ägyptische Vorurteil. Münter allein in der ang. Abh. S. 34. Anm. gibt zwei Erklärungen. Noch mehrere kann man bei Creuzer 3. 388. angeführt finden. Bentley, der den Namen doch nicht los werden kann und p. 90. zum zweitenmal auf ihn zurückkommt, begnügt sich, zu bemerken, die Sylbe [GREEK] (nach der Lesart [GREEK]) könne nimmermehr weder griechisch noch lateinisch sein. Darum habe er wohl getan, den _ineptis plerumque et cassis Etymologiis_ (nämlich aus griechischer Sprache) nicht nachzugehen; schwören wolle er, daß selbst Orpheus keine anzugeben wüßte. Ohne sich zu vermessen, könnte man dagegen schwören, eine (freilich nicht griechische) Etymologie anzugeben, die der unvergleichliche Bentley selbst, wenn er von den Todten wiederkäme, als die wahre erkennen würde. Doch erwarte man darum nichts außerordentliches, sondern nur etwas ganz leichtes und einfaches. Das Wort [GREEK] ist nicht mehr noch weniger als das hebräische [HEBREW] (_Erec-Apaim_), das _Exod. 34, 6._ und anderwärts als Name oder Prädicat des wahren Gottes vorkommt, oder, damit es noch ähnlicher sei, nach der chaldäischen Form (s. _Buxt. Lex. p. 216._) [HEBREW] (_Erik-Apain_), welches den Langmütigen, Mitleidigen, der weiten Herzens ist, bedeutet. Und das ist er ja, der Herikapäos, der mit Dionysos (s. Anm. 65.) so viel Ähnlichkeit hat ([GREEK], sagt _Proclus cit. ad Orph fragm. ed. Gesn. = Herm. p. 466._) [GREEK] der Lebensgeber ([GREEK], _Malal. hist. chron. p. 91._), der weitherzige Gott, im Gegensatz mit dem engherzigen, der das Leben vielmehr verschließt, hindert. Es ist den Hellenisten zu verzeihen, wenn sie, immer die griechischen Herleitungen im Auge, den Etymologieen nicht hold sind; auch Ruhnkenius hat sich nicht Einmal stark darüber erklärt. Doch sollte man nicht alle und aus jeder Sprache verschmähen, denn z. B. weder in kritischer noch in historischer Beziehung kann es unwichtig sein, zu wissen, daß der orphische Herikapäos hebräisch oder alttestamentlich ist. Doch dieser Name ist ja blos orphisch und beweist also nichts für ägyptische! Nun höre man _Plut. de Is. et Os. p. 359._ [GREEK]. Omphis also ein zweiter Name des Osiris? Hier weiß sogar Jablonski keinen Rat. Die Stelle muß verdorben sein, gewiß hat Plutarch [GREEK] geschrieben, denn nur für ein solches Wort läßt sich aus dem Koptischen die Bedeutung des Wohlthuenden herbeischaffen, _Vocc. æg. in Opusc. ed. de Water 1. p. 184._ Wenn man aber weiß, daß dasselbe Wort, aus dem oben der Herikapäus erklärt worden, auch (oder vielmehr ursprünglich) [HEBREW] (_erik-anphin_) geschrieben wurde, so wird man durch die sehr natürliche Abkürzung nicht nur den Namen, sondern auch die Bedentung: der Wohltätige, erklärt finden. Wir könnten nun noch weiter gehen; denn jener _Erik-apin_ verlangt ja auch seinen Gegensatz, einen engherzigen Gott; es scheint nicht schwer zu sagen, in welchem Namen dieser zu finden ist; aber dieß mag einstweilen hinreichen, nur aufmerksam zu machen. Der Zweifel, der in Ansehung der ägyptischen Götternamen geäußert worden, dürfte mit der Zeit wohl auch in Ansehung der indischen laut werden; versteht sich der bedeutendsten. Daß ein Volk die Namen der Götter, die es nicht selbst erfunden, nicht zu verändern gewagt, ist bei weitem mehr, als das Gegenteil wahrscheinlich. Auch an die Namen war ein Zauber geknüpft, und was der allgemeine Aberglaube von Beschwörungsformeln hält, daß sie nur in der Sprache wirken, in welcher sie überliefert worden, galt wohl auch von Götter-Namen. So behielt Samothrace mit dem alten Dienst nicht nur die alten Namen, sondern auch in heiligen Gebräuchen gewisser Ausdrücke einer eigenen alten Sprache ([GREEK]) bis auf Diodors von Sicilien Zeiten, der diese Wörter zwar von den Autochthonen der Insul herleiten will (_50. 5. p. 357._), die aber alle wahrscheinlich von der Art des Worts [GREEK] waren (Anmerk. 81.). So behielt Eleusis die fremdlautende Entlassungsformul, so die Sabazien ihr Hyes Attes! näherliegender Vergleichungen nicht zu gedenken! Doch wozu auch nur dieses, da das Beispiel der beweglichen Griechen allein entscheidend ist, die selbst im freien dichterischen Gebrauch die Namen beibehielten, von denen Herodot (weit bestimmter davon redend, als von der ägyptischen Herkunft) sich durch seine Untersuchungen überzeugt zu haben versichert, daß sie mit wenigen Ausnahmen (die auch nicht einmal alle Ausnahmen sind) den Griechen von den Barbaren gekommen.
+
+*) _Herodot. 50. 2. 49. extr._
+
+*) _50. 2. c. 51._
+
+*) Münter _l. c. p. 30._ Creuzer 2. 285. ff. Jacobs über die Memn. Anm. 63.
+
+*) _50. 3. c. 37._
+
+*) _Euseb. pr. ev. p. 38._ "Saturn gab dem Poseidon und den Kabiren die Stadt Beryth zum Sitz." Es ist dieß die einzige mir bekannte Stelle, wo Poseidon und die Kabiren zusammen, aber unterschieden, genannt werden. Nämlich Poseidon ist der Kabiren oder vielmehr sie sind des Poseidons Gegensatz. Er ist das blindlings Auseinanderrollende, Spaltende, Zertrennende; sie das Zusammenhaltende. Die Kabiren halten den Poseidon bewältigt, sie selbst überwindet wieder ein andrer, der in sofern [GREEK] (Anm. 66.), aber in einem ganz andern Sinn ist, als der zerstörende Poseidon. Spuren genug dieses Gegensatzes gibt der 21. Gesang der Ilias. Grade die Verbindung des Poseidons und der Kabiren in jener Stelle ist Beweis der Urkundlichkeit der Angabe. Man erinnere sich: was Herodot eben auch über Poseidon sagt. Nach dieser Ansicht möchte auch was §. 5. _in._ des Textes erwähnt ist, noch eine tiefere Deutung zulassen. In sofern schiene mir die Bochartische Erklärung von Patäken noch immer vorzuziehen, wenn man als den Grundbegriff von [HEBREW] (wohl nicht unrichtig) _firmus fuit, firmiter innixus est_ annähme. Patäken wären alsdann die festmachenden, die sichern Grund gebenden; Gegensatz von _instabilis tellus, innabilis unda_.
+
+*) _Gutberleth Diss. de Mysteriis. Deorum Cabirorum, insert. ej. Opusc. Franeck. 1704. et Poleni Suppl. ad Thes. antt. Gr. et R. T. 2. p. 824._ Dieser übersetzt [GREEK] durch _fortis et robusti viri imaginem_, ein Sprachgebrauch, für den er nichts anzuführen weiß, als _Ez. 27, 2._ nach der griechischen Übersetzung des Aquila, wo [GREEK], meint er, dem Zusammenhang nach nur starke Männer bedeuten könne.
+
+*) _Creuzer. Dionysus p. 133. ss._
+
+*) _Tu, genitor, cape sacra manu patriosque Penates._ _Aen._ 2. 717.
+
+*) S. die 72ste Anm.
+
+*) _Wachter. Gloss. Germ. 2. pag. 1989. Zwerg_ (_Anglosax. dwerg, dweorh, Franc. duverch_), _Dæmon silvestris montes et saxa inhabitans, vocem compellantibus reddens, et nescio quae arma fabricans, secundum Mythologiam Islandorum, cui nomen Edda. Verel. in Jnd. duergur et in plural. duergar, semidæmones, rupicolæ, arte fabrili mirabiles._ _Gudmundo Andreae in explicatione Voluspæ Stroph. 7. dwergi sic dicuntur à_ [GREEK]; warum nicht gradezu von [GREEK]? Über die Bergmännlein, Wichtlein u. s. w. läßt sich der wackere G. Agricola (s. über ihn v. Goethe's Farbenlehre 2. S. 237.) in der Abh. _De Animantibus subterraneis_ (_De re metall. libri 12. p. 491._) deutsch übersetzt also vernehmen. "Von andern werden sie (die die Griechen _Cobalos_ nennen) Bergmännlein genannt nach ihrem gewöhnlichen Leibesmaß, denn sie erschienen wie Zwerge dreier Spannen hoch und zwar wie alte Männlein (_seneciores_), gekleidet wie die Bergleute, in einem gekappten Hemd und mit einem um die Lenden herabhangenden Schurzleder (wie Kabiren auf Münzen; Kabiren-Hammer und Schlägel fehlt in andern Beschreibungen auch nicht). Diese pflegen den Erzgräbern keinen Schaden zu tun, sondern schweifen herum in den Schachten und Gängen und scheinen alle mögliche Arbeiten vorzunehmen, da sie doch nichts tun. Bisweilen werfen sie die Arbeiter mit Steinchen, verletzen sie jedoch nie, wenn sie nicht gereizt und in ihrer Gaukel-Arbeit gestört werden. Weßhalb die Bergleute durch sie von der Arbeit nicht abgeschreckt, sondern als durch ein gutes Zeichen aufgemuntert werden, desto eifriger und stärker drauf zu setzen und stärker zu arbeiten." Auch aus Theophr. Paracelsus wäre viel von den _Pygmæis_ anzuführen, das er doch wohl nicht blos aus seinem Gehirn, sondern aus gemeiner Volkssage genommen. Ob er ihnen gleich manches Böse nachsagt, rühmt er sie doch auch wieder als solche, "die oft unsre Warner, Wächter und Beschützer sind in großen Nöten, helfen oft einem außer Gefängniß und dergleichen Hülfe mehr." Den böhmischen Gebirgsbewohnern kommen sie bis in die Häuser als wahre _lares familiares_ oder _lemures_, daß man sie unter der Erde kann hämmern und schmieden hören, deßhalb heißen sie dort und in angränzenden deutschen Ländern auch Hausschmiede. S. _Balbin. Misc. hist. Boh. 50. 1. p. 45._ In dieselbe Classe gehören die ebenfalls von Agricola p. 492. erwähnte _dæmones, qui quotidie partem laboris perficiunt, curant jumenta, et quos, quia generi humano sunt aut saltem esse videntur amici, Germani Gutelos appellant_ ([GREEK] heißen auch die Kabiren, _Macrob. 3. 4._ vielleicht auch jene alttest. Penaten die Theraphim, nach dem arab. [ARABIC]. Aus einem alten Wörterbuch führt _Scherz. Gloss. Germ. med. æv. 2. pag. 2011._ an: "_wichtelein, wichte, schretlein penates_." Die sanftmütigen heißen vorzugsweise Kobeln, Kobolde, ein Wort das schon Agricola und nach ihm Wachter u. a. vom griech. [GREEK] herleiten. Nun sagt _Is. Vossius ad Hesych. voc._ [GREEK] _not. 12._ "[GREEK] (auch wohl das bei Hesych. gleich darauf folgende [GREEK]) _ejusdem omnia videatur naturæ_." Bei den unzähligen Beispielen der Verwechselung von _R_ und _L_ ist nicht zu zweifeln, daß [GREEK] für [GREEK] gesetzt wird, und daß dieß mit [GREEK] einerlei _Etymon_ habe, ist eben so wenig zweifelhaft. Hiedurch ist also die in den Vorstellungen nachgewiesne Verbindung auch in den Namen aufgezeigt. Oft genug während dieser Untersuchung hat sich der eben so nahe als tief eingreifende Bezug zwischen den Kabiren und den Laren und Manen dargeboten (vgl. _Arnob. adv. Gent. 3. p. 124. ed. Lugd. Bat._), aber wir mußten uns einschränken.
+
+*) Die Spur einer solchen Vorstellung könnte man in dem Namen _Anaces_ ([GREEK]) suchen wollen: denn wie dem auch sei, die einzig wahrscheinliche Erklärung dieses erst späten in _Anactes_ verwandelten Worts (s. _Cic. de n. D. 3. 21._) liegt in dem Enakim der Vorzeit, _Deut. 1, 28._ In der nordischen Fabel und Dichttunst finden sich meist, wo Riesen, auch Zwerge. Wer denkt nicht an das "viel starke Gezwerg," das zugleich mit dem Nibelungen-Recken der Schätze und Burgen hütet und dem nebst großer Stärke Zauberkraft inwohnt?
+
+*) [GREEK] wird von [GREEK], einer Faust hoch, erklärt. [GREEK] sind Finger.
+
+*) Söhne Sydyks (Anm. 84.) und Dios-Kuren ist einerlei Name. Aber derselbe Name ist ja noch urkundlicher in jenen [HEBREW] _Gen. 6._ vorhanden (daß darunter Söhne des höchsten Gottes gemeint sind, zeigt das [HEBREW] _emphat._ vor [HEBREW]). Von diesen erzählt das älteste Geschichtswerk: "Und die Söhne Gottes sahen die Töchter des Menschen, daß sie schön waren, und nahmen sich zu Weibern, die ihnen gefielen," worauf in demselben Zusammenhang folgt: "In jenen Tagen waren Nephilim (Riesen) auf der Erde, zumal nachdem die Söhne Gottes sich mit den Menschentöchtern verbanden und sich Kinder zeugten. Dieß sind die Gewaltigen, die Männer des Namens (die Berühmten) von Urzeiten der Welt her." Es ist doch etwas ganz wunderbares um diese Stelle, mag sie nun für mythisches Bruchstück nach der beliebten Weise oder für Geschichte genommen werden. Will man nicht den ungereimten jüdischen Fabeln Glauben beimessen, so kann man [HEBREW] nur von Verehrern des wahren Gottes erklären, die gleichsam als abgesondert von den übrigen Menschen und als ein eignes Geschlecht vorgestellt werden. Es waren also so zu reden die Eingeweihten der ersten und ältesten Mysterien; von Anfang an war etwas abgeschlossen, nur einem Teil des Menschengeschlechts vertraut, das sich erst allmälig wie von einem Mittelpunct aus verbreiten sollte. Ist es nicht auffallend, daß aller höhere und bessere Glaube gleich anfänglich in Griechenland und sonst unter der Form von Geheimlehren auftritt? Augenblickliche und örtliche Ursachen lassen sich doch nicht immer und überall denken, sondern das Geheimniß, die Abgeschlossenheit schien, gleich ursprünglich und vom Anfang her, zugleich mit der Sache selbst gegeben. Söhne des höchsten Gottes wurden jene Inhaber der ältesten Geheimlehre, wie die in ihrem Ursprung offenbar menschliche Zwillinge Dios-Kuren wurden und zuletzt selbst unter die Kabiren übergingen. Von diesen höheren Naturen stammen die ersten menschlichen Heroen, die Nephilim (Niflungen?) die gewaltig waren, so lange sie lebten und noch in der Unterwelt (Niffelheim der altnordischen Mythologie?) groß und berühmt sind, s. _Es. 14, 9._ Jeder mag suchen diese wunderbaren Anzeigen so gut er kann weiter zu verknüpfen, aber sehr natürlich ist doch, sich nach einer Erklärung der so allgemeinen Mysterien-Form schon in den ältesten Zeiten umzusehen. Was war auch die strenge Absonderung des jüdischen Volks anders, als eine den Mysterien ähnliche Anstalt, nur daß sie nicht zwischen Menschen desselben Volks, sondern zwischen einem Volk und allen übrigen eine Scheidewand zog? Erst das Christenthum sollte alle Schranken aufheben.
+
+*) Nämlich aus dem hebr. 2, mächtig stark.
 Der für diese Erklärung stimmender ist eine große Anzahl,
 Scaliger ad Varr. und ad chron. Euseb. Gerh. Voss.
 
@@ -1520,7 +563,7 @@ Zugleich wird dieses hinreichen zum Beweis, daß die An-
 gabe: es sei'n von Anfang nur zwei Kabiren gewesen
 und die andern erst in der Folge zufällig dazu gekommen,
 alles geschichtlichen Grundes ermangelt, daß also nicht
-einmal nöthig ist, deßhalb an das übrigens sehr Wahr-
+einmal nötig ist, deßhalb an das übrigens sehr Wahr-
 scheinliche zu erinnern, daß nicht allen alle Zahlen (oder
 Grade) mitgeteilt und vielen vielleicht wirklich nur zwei
 Persönlichkeiten bekannt wurden. Aber der das System
@@ -1843,7 +886,7 @@ Orph. Argon. 464. 465.
 gey aouop-
 Ee öpre-, äyra porol,
 wo Bruuck ad Apoll. I. 917. und nach ihm Hermann
-erstens sehr unnöthig ägna in das gewöhnliche , zwei-
+erstens sehr unnötig ägna in das gewöhnliche , zwei-
 tens pft" in anra verwandelt und so grade die eigen-
 tümliche Farbe in diesen Stellen verwischt haben. Schon
 daß sie ungewöhnlicher, also die schwerere Lesart ist, soll-
