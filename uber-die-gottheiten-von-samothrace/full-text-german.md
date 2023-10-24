@@ -10,11 +10,11 @@
 
 ---
 
-# [Über die Gottheiten von Samothraki.](über-die-gottheiten-von-samothraki-1)
+# [Über die Gottheiten von Samothraki.](#über-die-gottheiten-von-samothraki-1)
 
-# [Anmerkungen.](anmerkungen-1)
+# [Anmerkungen.](#anmerkungen-1)
 
-# [Nachschrift.](nachschrift-1)
+# [Nachschrift.](#nachschrift-1)
 
 ---
 
