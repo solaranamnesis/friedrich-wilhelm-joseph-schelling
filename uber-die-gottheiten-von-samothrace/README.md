@@ -7,4 +7,4 @@ Made with help from OCR4all:
 English - Plain Text  
 English - PDF  
 [German - Plain Text](full-text-german.md)  
-German - PDF  
+[German - PDF](https://cdn.solaranamnesis.com/Schelling/schelling_deities_samothrace_1815_german.pdf) | [Biolinum](https://cdn.solaranamnesis.com/Schelling/schelling_deities_samothrace_1815_german_biolinum.pdf) | [Kerkis](https://cdn.solaranamnesis.com/Schelling/schelling_deities_samothrace_1815_german_kerkis.pdf) | [Atkinson](https://cdn.solaranamnesis.com/Schelling/schelling_deities_samothrace_1815_german_atkinson.pdf) | [Fraktur](https://cdn.solaranamnesis.com/Schelling/schelling_deities_samothrace_1815_german_frak.pdf) | [Schwabacher](https://cdn.solaranamnesis.com/Schelling/schelling_deities_samothrace_1815_german_swab.pdf)  
